@@ -1,4 +1,4 @@
-Prologue
+# Prologue
  
 
 MM… Oh, it’s morning? This is the usual time I get up, so I might as well log in for a bit.
@@ -370,8 +370,7 @@ They’re lounging around peacefully and watching the stream, which means it’s
 I’m going to go visit the old woman at the general store.
 
 
-Chapter 1:
-Thursday
+# Chapter 1: Thursday
  
 
 I LOG IN, stretch, and head to the general store. The woman told me to come back when I’d raised my Alchemy skill to its second tier, and so here I am.
