@@ -1342,3 +1342,1321 @@ In other words, I’m supposed to do more roleplaying in the game as practice? I
 Well, it’s still two years away at the earliest, so I’ll be able to graduate high school, at least. I’ll take some time and think about it.
 
 We chat some more as we eat, take our baths, and then the four of us girls have what basically amounts to a slumber party before bed. I mentally apologize to Mr. Skelly…but then I remember I can simply send him a message to explain the situation.
+
+
+# Chapter 2: Friday—The Day Before Summer Break
+ 
+
+I WAKE UP in the morning, prepare for the day ahead, and glance out at the garden. There I see Eli elegantly sipping from a cup of tea, so I head straight for her.
+
+“Is Abby still asleep?” I ask.
+
+“I assume she’ll be up soon.”
+
+It’s almost 7 a.m. I imagine she can’t sleep much longer.
+
+Letty hands me a cup of black tea. I spend a few peaceful moments with Eli until Abby shows up.
+
+“Good morning.”
+
+“Morning, Abby.”
+
+“Did you sleep well?”
+
+“I sure did!”
+
+Abby joins us, becoming the third member of our breakfast party.
+
+We kill time at our own pace, as my sister and I will be driven to school together today.
+
+“It’s too early for it to be this scorching. We won’t be able to enjoy any tea once it gets even hotter than this,” says Eli.
+
+“It’s usually better to stay inside during the summer.”
+
+“How do you ever get by?”
+
+“We stay close to the air conditioner.”
+
+“I see…”
+
+It’s impossible to relax unless the temperature is tolerable. Heat alone is hard enough to bear, but the humidity only makes it even more torturous.
+
+Shortly before school begins, one of the drivers steps forward and heads off to the car. Abby’s maid, Dory, arrives with Akina, and the three of us leave for school. Eli and Abby stay at home, of course. The inside of the car is nice and cool—the driver must have turned the AC on in advance.
+
+We arrive at school in the limousine, and the driver drops us off in the staff parking lot.
+
+“Shall I wait here until you’re ready to return home?”
+
+“Well…they said it’s just one ceremony, and then we get our report cards and leave, but I don’t know how long the ceremony itself will last.”
+
+“I imagine it won’t be more than two hours. I’ll wait here for your return.”
+
+I’m sure I don’t have to worry about the driver breaking that promise. I exit the limousine and head to class.
+
+“Mornin’!”
+
+“Morning!”
+
+“Good morning.”
+
+“I haven’t seen that car in a while!”
+
+“But you’ve actually seen it?”
+
+“Yeah, a while back, though.”
+
+The people I went to elementary and junior high school with certainly might have seen a limo before. I was dropped off in one many times over the years.
+
+Mom and Dad don’t currently have the slightest interest in cars, so the one we have at home is entirely normal. They said all that really matters is that it can drive. They prefer things like cosmetics and electronics.
+
+I chat with my classmates while everyone else shows up to class. Eventually, the bell rings.
+
+“All right, kids!” our teacher calls out. “Get to your seats for attendance… Oh, you’re all here, huh?”
+
+All it took was one glance to determine that, apparently.
+
+“There was some sort of crazy car parked out back. I almost jumped out of my skin when I saw it! Whose is that?”
+
+“That would be Kotone’s.”
+
+“It belongs to a friend who’s staying at my house.”
+
+“Ah…I see. Well, that explains it. All right, let’s get to today’s schedule. We’ll do the ceremony first, then I’ll give you your report cards, and you’re free to leave after that. The exact length of the ceremony comes down to how long the principal talks for, so pray he keeps it quick.”
+
+I don’t think our principal will drag it out too much. The driver probably won’t have to wait very long.
+
+We head out to the ceremony. It ends up finishing so quickly, we don’t even have time to zone out before the principal wraps up. I think that was a good choice. He hit all the important points instead of rattling on, which meant he kept our attention to the end.
+
+Then we return to the classroom, receive our report cards, and prepare to go back home.
+
+“We couldn’t do this yesterday?”
+
+“The grown-ups at the school had something to do with that. In fact, they wanted your last day to fall on their last day.”
+
+“Whaaaat?!”
+
+“My vacation starts today too! I don’t know how many of you in this class are joining tomorrow’s FLFO patch, but don’t forget your homework! Hey, don’t make a fuss; just do the work if you don’t want to get in trouble. Like the principal said, be really careful if you’re gonna vacation at any spots like rivers or the beach. Okay, that’s it for me. Dismissed!”
+
+“I’m glad that didn’t take long, but now it’s like…why the hell did we have to come here for this?”
+
+“Pipe down, Suguru. I’m sure we’re all thinking that.”
+
+“I’m just glad Ms. Dory and the driver didn’t have to wait too long.”
+
+“Oh, they’re still waiting? Let’s get going, then.”
+
+Suguru, Tomohiro, and I head to the car to see that my sister and her two friends are already inside. We head home without any further delay.
+
+ 
+
+Our friends go their separate ways once the car arrives at home. It’s still early in the afternoon, which means they’ll surely be logging into the game soon. I hope they have a safe trip back.
+
+“We’re home,” my sister and I say in unison.
+
+“Welcome back. You’re early today.”
+
+We hand over our report cards to our parents, change clothes, and return to the living room.
+
+“Looks like, as usual, there’s nothing here we need to address.”
+
+I got all 5s, while Rina got half 4s and half 5s. Mom’s right—this is exactly how our grades have always been. The consistency is a good thing.
+
+We chat for about half an hour until the CEOs and their families have to leave, so I see them off.
+
+“See you in the game, Tasha, Rina.”
+
+“Until next time!”
+
+“Yes, see you soon.”
+
+“Remember to think it over, Tasha!”
+
+“I’ll try to keep roleplaying on the brain from time to time.”
+
+“Exactly. See ya!”
+
+Abby, who’s holding my sister’s hand, bounces up in the air with her before getting in the car. What was that all about?
+
+Eli leaves with a “Good day” before joining them in the car. “Good day” is truly a phrase that works in any situation—not that many people still use it.
+
+It sounds like Mom and Dad are going out on another date now that the guests are gone. Akina says goodbye and rushes back to her room for some gaming. I suppose I’ll do the same.
+
+ 
+
+When I log in, I’m at the central plaza of Starting Town.
+
+A message from Mr. Skelly says, “I’ve taken up Alchemy. I’ll report my findings on the BBS.” Yeah, I knew about that. I’ll leave things up to him.
+
+Let’s see… Ah, that’s right. I unlocked some new race skills, didn’t I? These look the most interesting from what I’ve seen.
+
+ 
+
+LUST FOR LIFE
+
+Grants a small chance of revival when defeated in battle.
+
+ 
+
+LIFE ABSORPTION
+
+Absorbs enemy HP during close-quarters battles. Amount of HP absorbed is relative to skill level.
+
+ 
+
+AUTOMATIC MP REGEN
+
+Regain MP relative to skill level.
+
+ 
+
+SPECIAL AUTOMATIC REGEN
+
+Increases the effect of automatic regen skills. Become a specialist in the art of resurrection.
+
+ 
+
+I definitely want Automatic MP Regen…but it wants 3 SP for each of these race skills. I’ll have 9 left if I take them all. To make sure I get the right skills, I’ll ignore that strange Lust for Life skill for now and take the other 3. That leaves 12 SP.
+
+Next, I change Unit One’s Physical Immunity to Life Absorption. His Physical Immunity level is just too low to make any difference. Although, that’s the fault of my own Secret Art of Necromancy skill being low. I add Special Automatic Regen too, since my Undying Royalty skill is at 20 now.
+
+This would be a good time to go buy some new equipment for Unit One, but Mr. Ertz probably isn’t around right now. I’ll sell some things at the shop, buy a mace, and head north. It looks like it’s finally time to acquire Mine. I’ll sacrifice the rest of my SP for it.
+
+If I remember correctly, the weapons shop is next to the adventurers’ union.
+
+Is it just me, or is metal equipment really expensive? Now I don’t know what to buy. I want something for blunt strikes during this trip north, but it’s hard to commit 30,000 gold for something I’m going to swap out after no time at all. Maybe I’ll go for copper instead of bronze, and I’ll also buy a round shield while I’m at it. The cost comes out to 8,000 gold.
+
+Without any further delay, I set up Unit One’s equipment. The mace falls into the Polearm category instead of Sword. But he’s still not at the right skill level for Defend. Unless he raises it soon, the shield will be little more than a decoration.
+
+Time to head to the northern city of Welshtead… Actually, I’ll sign up for some hunting quests from the union first. I end up with orders for rabbit, wolf, stone caterpillar, and stone turtle culls, which I’ll leave up to Unit One.
+
+I summon him at the northern gates. He’s equipped with a copper mace and a round shield now.
+
+“All right, Unit One. Take out any rabbits that approach us.”
+
+CLACK
+
+I watch as Unit One handles the rabbits, and I stick my dismantling knife into their bodies once they’re dead. I should probably repair this knife soon. I’ll ask Mr. Ertz to take care of it later.
+
+Once Unit One’s health falls below 60%, I cast Dark Heal on him as I follow along from behind. My Life Absorption level is pretty low, but I don’t really know how it works either, so it’s hard to relax at the moment.
+
+I dismantle the wolves and rabbits for their meat, since it always comes in handy. When I finish up the quests from the union, we head north. I don’t personally need any drops from the caterpillars and turtles, so I’ll absorb them for rituals. It’s always important to increase my capacity.
+
+ 
+
+The path north starts to get more and more sloped as we go, while the plains grow less grassy. In its place, I can see the soil now. We are yet to reach the rocky terrain we’re heading for.
+
+The enemies change along with the environment, meaning I now see stone caterpillars and stone turtles spawning. The caterpillars have rugged, rocky backs, while the turtles are essentially just walking around with boulders for shells.
+
+In other words, they’re slower but have better defense. Blunt attacks and magic will be very effective on them, and therefore, this area of the map is suited for players starting out with those two weapon types. It’s easy to take in my surroundings from this spot, and I even see a few other players around.
+
+“Go ahead, Unit One.”
+
+CLACK CLACK
+
+He swings his mace down hard against the sluggish turtle. With each powerful blow, the sound of metal against stone rings out.
+
+All I do is stand and watch. Secret Art of Necromancy won’t level up at all unless Unit One puts in the work. I need him to raise it high enough for me to be able to take him along wherever I go.
+
+I’m sure my combat skills won’t rise very much here in the starting area anyway. The combat skills I have are already at their second tiers.
+
+ 
+
+Secret Art of Necromancy is now level 5.
+
+Secret Art of Necromancy has unlocked Life Assignment.
+
+ 
+
+LIFE ASSIGNMENT
+
+This skill can only be used at half stamina or more. Transfer 1% of your HP at a time to any servant. Skill ceases when the servant is fully recovered, you cancel the skill, or your stamina falls to below half capacity.
+
+If the player has multiple servants, 1% of player HP will transfer to each servant.
+
+ 
+
+It may be a second-tier skill, but it still levels up quickly in the beginning. How nice.
+
+So this is an art for servant HP recovery? At most, my own HP will decrease in increments of 6%. I can use this and Dark Heal together, along with automatic HP regen skills…and Life Absorption too? Wow, Undead really do have it good, as long as we don’t run into any light magic types.
+
+I use the ritual to absorb the corpses that keep piling up while I’m busy checking on skills. How sad that they still only give a capacity of one.
+
+My Unit One has a number of buffs that allow him to function with ease in this beginner’s area with all its beginner’s costs. He also managed to get by in the second-tier area where the costs were doubled, so I’ll make him the attacker when we encounter bosses.
+
+“I’m going to resummon you, Unit One.”
+
+CLACK CLACK CLACK
+
+I think I’ll do a max summoning this time at three times the base cost in order to raise my hunting efficiency. Summoning at the base cost is more than enough to do some good hunting, but the stronger my servant, the more my numbers go up.
+
+It may be a good idea to summon one of the fast skeleton wolves to grind quickly, but they’re not suited hunting grounds. I’ll keep Unit One as a skeleton for now. I summon him again and follow from behind.
+
+I remember the northern boss being a rock golem, but now that it’s been defeated, it supposedly appears as a weaker mini-rock golem. I wonder if I can use Dark Ritual on it. Since I might be able to get golem blueprints, I’ve got to try absorbing it.
+
+The turtles that previously took four shots to defeat now only take two. I absorb their bodies and press onward to reach the boss.
+
+Hmm…should I take on the boss once my Secret Art of Necromancy is at level 10? At that point, I’ll be able to summon a Unit Two. I’ll also earn more base skills to set them up with. What if I could summon a red skeleton? All right, let’s raise this skill.
+
+ 
+
+Secret Art of Necromancy is now level 10. You have earned 1 skill point.
+
+You have earned Necromancy through Secret Art of Necromancy.
+
+ 
+
+NECROMANCY
+
+Attach undead attributes to any target.
+
+ 
+
+So that means I can make things more vulnerable to light and holy magic? I bet I can purify them too. But the enemies will also become more resistant to Dark Magic, so I’ll have to only use this one in parties. I doubt I’ll find any use for it on my own.
+
+Wait, hang on a minute… Can I use it on party members so that my buffs will affect them too? This requires further testing. If I can use it on party members, it will be a good idea to—wait, no. There’s a problem with regeneration restrictions. I’m sure they don’t have Special Automatic Regen, so this will just hurt them in the end. Hmm…
+
+Well, either way, I reached my goal, so it’s time to give Unit One Defend.
+
+I resummon Unit One with a 3× cost, leaving me with 40 capacity, so I can summon a Unit Two at a 2× cost. However, since I don’t know much about the golem, maybe it’s better to keep my costs down for the moment. I’ll go with Unit One alone instead. I’m at the point where I can summon him as a red skeleton or high zombie, but I can’t stomach those high costs.
+
+“Unit One, when the enemy strikes at the ground, you have to jump.”
+
+CLACK
+
+“Also, try not to be behind it.”
+
+CLACK
+
+“You’ll be facing an enemy who uses blunt attacks, so your life depends on how you dodge them. Prioritize evasion instead of getting damage in.”
+
+CLACK
+
+“Let’s get going, then.”
+
+CLACK CLACK CLACK
+
+I use Dark Enchant to raise my own intelligence stat. With that, we head on in.
+
+ 
+
+The look of the area is generally the same as the rest of the place, but there’re now large rolling boulders. There’s a different color on the map to indicate that we’re in a boss area.
+
+The system takes control of my body, showing me how one of the tumbling boulders rolls all the way down to the golem.
+
+It stands on two teardrop-shaped legs, has an elliptical torso, and sports two round arms. Its appendages seem to be floating around the creature, as I can’t see any joints. It also spins its arms sometimes.
+
+A real golem is supposed to tower over you, but this mini-golem is really only as tall as an adult man.
+
+It swings its arms back, howls at the sky, and with that, the battle begins. This isn’t the first game where I’ve had this thought…but how does a thing like that have a voice?
+
+Putting that thought aside, I get straight to the task at hand. I use Magia Amp and Overspell to shoot a bulkier Dark Lance at the golem.
+
+Oh, that took off over 20% of its health already. That makes sense, considering that it’s a low rank, it’s already been weakened by its first defeat, and it has a weakness to magic. I don’t think this will be a hard fight at all.
+
+It stomps toward me, its legs planted wide apart, but I send the creature off with a gift of Light Lance before it can get too close. It hits, but the golem swings its right arm down all the same. I crouch, hold my rapier up to receive the blow, and see that Unit One is hitting the golem’s left leg from the side.
+
+The golem doesn’t have many attack patterns, and it’s easy to see what’s coming based on its telegraphed animations. It swings its arm at you, rolls around if you get behind it, stomps when its stamina is low, and punches with its left arm.
+
+The right arm swings. The left arm punches. The cry it let out during the intro cutscene is for when it’s about to roll. When it raises the right arm up, it’s time for a stomp.
+
+The biggest headache is that left straight punch. It never even does the rolling move if you don’t go behind it. As for the stomp, well, you just jump up in the air. Arm swings can be stopped with a blade.
+
+The main problem is that, even as a mini-golem, its arms are still bigger than me. They’re practically impossible to parry…meaning its attack knocks me off my feet. I guess you can say that size matters in a time like this. Although it can be a curse as much as it is a blessing, depending on the situation…
+
+I feel like jumping to escape the blows might be my best option when fighting a huge monster like this. In real life, my bones would definitely snap, but in the game, the hits send you flying. That would be a problem when you’re in a party, but you can just use the Heavy Stand art with a large shield to stand your ground.
+
+That’s the only real problem, though. If I continue using Overspell to shoot Dark Lance and Light Lance whenever I get the chance, I should be able to win just fine.
+
+“Time to jump, Unit One.”
+
+CLACK CLACK CLACK
+
+Oh, the boss lifted up its right arm. As soon as it slams it down into the ground, we see an effect activate, which Unit One and I both jump to avoid. Considering how close we are, we end up jumping the exact moment the arm touches the ground.
+
+The stomping animation is really dramatic, but the golem can barely defend itself at all after using that move, so that’s our time to strike. Then I shoot more spells at it while Unit One and I both get in some good hits.
+
+We jump to perfectly dodge the second stomp, and finally, Unit One delivers the finishing blow to its leg. The golem collapses and dissolves into pieces.
+
+ 
+
+Darkness Magic is now level 5.
+
+You have learned Nox Shot through Darkness Magic.
+
+Your servant level has increased.
+
+Defeating the northern boss has allowed you access to the north. You also receive 3 SP for your successful battle.
+
+ 
+
+CLACK CLACK CLACK
+
+“We got some good skill grinding in, so I’m happy with this.”
+
+So I know Nox Shot now? It’s a powerful and fast chant, but its range is dreadfully short. It’s more like a shotgun spell.
+
+Now it’s time for the Dark Ritual.
+
+ 
+
+Your Dark Ritual grants you the materials for a Mini Golem.
+
+Dark Ritual increases your capacity by 3.
+
+ 
+
+Hmm… So now I can make a skeleton mini-golem and a mini-golem zombie? They’re small, but once they evolve, they become a medium-sized golem. I just don’t have enough capacity for that…
+
+ 
+
+Time to head to the town. I’ll summon Unit Two while I’m at it. He’ll have Sword…and I think I’ll give him Footwork or Strength Boost too. As for how something without muscle can gain strength, well, it’s best not to think about it too hard.
+
+Since I’ll be giving him a greatsword, I think I’ll set him up with Balance Control. I also decide to keep the race skills the same, and commence the summoning!
+
+“…You’re both Unit One, aren’t you?”
+
+CLACK
+
+“Well, I’ll call the first one I summoned Unit One, and the next one will be Unit Two. You’ve used a greatsword before, so you know what to do, right?”
+
+CLACK
+
+“All right. Let’s get going.”
+
+We leave the boss area and head onward. For now, my goal is to unlock the portal, but hunting can wait until later. I also need to find out where I can mine ore.
+
+There’s still so much to do, but that’s a good thing.
+
+This second area where Welshtead lies isn’t so different. The whole place is covered in rock caterpillars and turtles instead of the stone ones we were fighting.
+
+But they’re a lot bigger, huh? Out of the corner of my eye, I watch Unit One and Unit Two beat up a turtle while I look around.
+
+Both the Starting Town and eastern regions are made up of plains and woods. The south lines a large ocean, while this area to the north has plenty of mountains. They must be where I’ll find those ores. The mountains look entirely brown.
+
+I perform the ritual and absorb the enemies that Units One and Two defeated, then head to town. Striking those armored enemies with a greatsword only damaged it a little faster than normal. But since the one mace is the sole blunt weapon I have, it’s really my only option.
+
+Should I really turn Unit Two into a golem? Punches are the same as blunt strikes, I’m sure. The only problem is that a golem costs 400 capacity. I really don’t have enough to cover it, and a mini-golem is no different from a skeleton, so I may as well stick with what I have.
+
+Fighting in the second area increased my capacity, so I might be able to change after defeating a few more enemies. I receive 15 capacity in exchange for those victories.
+
+“I’m going to resummon you, Unit Two.”
+
+CLACK
+
+This time, he’s coming back as a skeleton mini-golem. We’ll start with a base skill of Fist. The new Unit Two looks like the boss mini-golem but with an outer shell of bones, which isn’t very protective.
+
+“Punch any turtles you see, Unit Two.”
+
+The light shell of bones allows him to nimbly creep up and deliver a straight right punch. Then I hear a surprisingly loud crunch and immediately come to notice a fatal flaw.
+
+It feels like I fell into a trap… “Unit One, swap places with Unit Two.”
+
+CLACK CLACK CLACK
+
+I make them swap places again after Unit One attacks. Skeleton golems certainly have some problems, huh? Golems fight bare-handed, while skeletons are more easily damaged by blunt hits. Therefore, I’m now in this ridiculous situation where Unit Two is taking damage from the recoil of its own strikes.
+
+I’ll resummon him as a mini-golem zombie instead. That will give him some meat on those bones.
+
+This is trickier than I thought. Skeletons can use weapons, but they can hardly withstand body blows, even from something as weak as rabbits. But what if I give him custom arms? I could put arms on his back to hold weapons, which might make him more powerful against the quick-footed wolves.
+
+Well, with all this customization available, I can probably do whatever I want. I don’t know how to judge any of it without information in advance, so there’s no choice but to try it out.
+
+“Let’s try that again, Unit Two.”
+
+The sound his attack produced this time wasn’t as striking, but it dealt plenty of damage. His stamina still looks fine too. Golems really do work best as zombies. The problem is Decomposing Body. I doubt he’ll be able to get rid of it any time soon. It’s a matter of skill level and capacity.
+
+We press onward, defeating enemies along the way, and once I spot the town, I recall my servants.
+
+“Welcome to Welshtead, a humble mining town!” the gatekeeper greets me.
+
+I say hello back and head inside.
+
+There’s a lot of smoke coming from one corner of the city, which makes sense considering the mining work they do here. That must be a street for craftsmen. Judging by the passing residents, this area seems to have a lot of dwarves.
+
+It’s by no means a small town. I get the sense that there’re lots of blacksmiths, miners, and even adventurers here. Metallic gear looks cheap here too, and I’ll bet that’s because they gather the materials themselves. Lots of the adventurers are residents, of course, but I also see plenty of players around too.
+
+I sightsee just a little bit before unlocking the portal.
+
+“Oh? Yo, Stasia. Didn’t expect to find you here.”
+
+“Hey, Sugu. I’m glad I found you.”
+
+“What’s up?”
+
+“Do you know where I can mine some iron ore?”
+
+“You can do that in pretty much any of the mountains in this area…well, except those ones. Over there, that’s where you can mine.”
+
+“There’re mountains that don’t have ores?”
+
+“It’s part of the game’s story. The townspeople are currently using those. But since the ones over there are already pretty stripped of resources, they’re free to use. The idea is to make your choice but be ready for the consequences.”
+
+“I see. So you’ll cause trouble for the townspeople if you mine without their permission.”
+
+“You can’t even enter the mine shafts that they’re using, so if you find a hole that lets you go in, it means you can use it.”
+
+“That’s nice. It makes it easy to tell the difference.”
+
+“By the way, there will be enemies there too, of course. Ants, ants, and ants.”
+
+“There’re three kinds of ants?”
+
+“Ants with spears, fighting ants, and ants that shoot acid at you. You’ll just need light… Actually, I guess not.”
+
+“I have my night vision, so I’ll be fine.”
+
+I could picture the townsfolk ending a hard day’s work in the mines, only to be met with ants… Maybe they don’t mind us mining in certain mountains if it means we’ll defeat ants for them at the same time? It saves both time and work for them.
+
+“The enemies themselves aren’t too strong, but there are a ton of them. You’ll have to fight two or three at once in those mine shafts, and they keep coming at you for a while.”
+
+“So they’re the kinds of enemies that come in waves?”
+
+“You’ll be able to excavate more the further down you go, but there’ll be more ants there too. Right now, you can get iron, nickel, and cobalt.”
+
+Supposedly, we can’t use nickel or cobalt right now. We’re mostly looking for iron, with steel still being down the line a bit. Hang in there, Mr. Ertz.
+
+Without any firepower, the endless attacks from the ants will probably make mining a real pain in the ass.
+
+Sugu will be in the north for a while with his party to craft some new equipment.
+
+“Oh? Hey, you two.”
+
+“Ah, hi there, Cecil,” Sugu responds.
+
+“Long time no see,” I say.
+
+“Yeah, I’ve been in the west lately. But I heard I could get steel soon, so I came here for upgrades. Believe it or not, my party still uses bronze!”
+
+Oh, so they’re on the verge of an upgrade? Then maybe I should work on providing my servants with steel equipment too. I ask him about the prices.
+
+“I made pretty decent profits, and we’ve gained new members as well, so I decided to change things up.”
+
+“I made good money during the tournament too.”
+
+“Yeah, I remember the line outside your booth.”
+
+We chat for a while, but lunchtime arrives IRL, so I log out. Once I’m finished eating, I log right back in again.
+
+ 
+
+I check to make sure the bronze pickaxe I bought from Mr. Ertz is still in my inventory, and finally, it’s time to head to the mountains. I use 3 SP to acquire Mine while I’m at it.
+
+I head to one of the mountains Sugu specified and spot a good few entrances to mine shafts. Standing there and staring at them won’t help me decide, so I enter more than one and take a look around each.
+
+The mine shafts barely seem wide enough for a mini-golem to move around in, but I think a skeleton with a mace, shield, and greatsword might fit.
+
+I need to raise my hunting efficiency in this area… I need to be sure I don’t get killed too, so I summon my servants with a 3× cost multiplier. That should give them a 1.5 stat multiplier to their stats like before. I wonder if that applies to bone density too…
+
+Ignoring that question for now, we travel straight through into the mine shaft. The pathway is wider than I expected inside, probably to haul out ores and such. A more meta reason for the size might be so that we can properly battle in here.
+
+The shaft starts to branch off after a while, making this trip more complicated. But my mini-map is updating automatically, so there’s no need to hesitate. It’s a game, after all, so we shouldn’t have to walk around with a pen and paper in hand the whole time.
+
+We continue into the mine shaft until I spot a light shining from the wall. Well, that’s quite handy, isn’t it? I take out my pickaxe and begin to swing.
+
+Mining in this game simply means that you can obtain the item you see in front of you. It isn’t a flashy graphic in the game, and it’s similar to how I can actually pick any medicinal herbs and mushrooms that I come across. These stones enter my inventory the moment I pick them up.
+
+Of course, since this is a game, the materials will respawn after some time. There’s also no need to feel guilty about gathering from these spawn points, as they are unique to each player. Sure, it’s not realistic, but it’s better than getting into fights over hoarding, I’m sure. That said, gathering materials depends on a player’s skills and equipment, so it’s not guaranteed that everyone can collect everything they’re looking for in the first place.
+
+Just like in most games, this light on the wall is telling me that I can gather materials here. However, the light in FLFO also tells me how many times I can dig and how many ores I’ll receive. The players refer to this as a god-tier mechanic. Apparently, there are random places within the game area where the materials also respawn automatically. In other words, if you take lumber from a special tree, another tree in the same area starts to give the same bonuses as the first.
+
+All players share the same bonus spots, but it’s not too appealing when you think about having to compete over who gets to gather from them. It sounds like there’re multiple spots in each area, and once harvested, they transfer to another random location, so the whole thing isn’t very productive.
+
+ 
+
+I continue swinging my pickaxe into the wall, causing the clang of each blow to echo throughout the mine shaft. Units One and Two are standing guard nearby.
+
+The pieces that come off the wall include iron and copper ore. Well, it’s all going to Mr. Ertz anyway, so I don’t care what I get. Maybe the reason I’m mostly finding copper is because it’s still too early before I can mine anything else. Either way, I’ll head to the next spot now.
+
+Oh, here come some enemies. Those are definitely the kinds of ants you only see in games: a little cartoonish, with hands gripping a spear. This must mean the empty-handed ants are the ones that fight with their fists. There’re two ant lancers and one ant fighter, but I don’t see any of the acid-throwing kind yet. My servants can handle the lancers.
+
+“Unit One, take out the two with the spears.”
+
+CLACK
+
+Spears are stabbing weapons, so the servants should be able to handle them. Meanwhile, since there’s only one, I’ll take care of the ant fighter and its blunt attacks. This dark mine shaft hidden away from the sun makes for a perfect hunting ground. I doubt they can sneak up on us in these tunnels.
+
+The fighter ant holds up its fists and charges at me on its multiple legs, while the lancer runs at me with its spear at the ready. These creatures are actually pretty speedy.
+
+I cast Light Lance at the approaching fighter to draw him my way. Unit One and Unit Two stand in front of the lancers.
+
+The fighter had gathered momentum into its straight right punch, but I manage to dodge it anyway and slash to my left to hit its undefended side. I then dispatch Nox Shot and begin to chant Light Lance. The fighter ant recoils from Nox Shot, causing it to miss its next punch, and then I dispatch the spell.
+
+It looks like the ants’ joints are their weak points, so I aim for them with my rapier and spells. I glance to my side and see that despite Unit One having a spear stuck in his rib cage, he still manages to smack his mace into the ant’s head. So the skeleton doesn’t take any damage in that empty space, huh… The bones are hard to stab into, and even when the blow lands, they don’t take much damage from it. Of course, if the enemy had a hammer or something, it would be game over.
+
+I use Break Parry to jump up and dodge the punches, slash into the ant’s weak spots, and cast another Nox Shot. This finishes off the ant for good.
+
+Projectile spells are most convenient, although, people who play this game with spells alone probably have difficulty aiming them. They fly over ten meters away, after all. These spells are probably priceless to those who specialize in magic and weaponry together. I really want to get Lumen Shot soon, so I’ll focus on using light magic for a while. It doesn’t pack as much of a punch, but that’s not important.
+
+As for Unit One and Unit Two… I’ll go take out Unit Two’s opponent first. I jump in front of the lancer and use the rapier art Penetrate on its weak spot. The rapier glows red with the art, and once I’m aiming at the right point, what looks like a laser shoots out of the tip and pierces the lancer’s body, producing an eye-catching visual effect. The game is acknowledging that I hit the ant’s weak spot.
+
+With its side cut open, the lancer stumbles, and Unit Two uses the opportunity to strike it with his greatsword, sending the foe to the grave.
+
+I send Unit Two back to help Unit One and absorb the ant with Dark Ritual. It looks like they managed to defeat the other lancer with a full swing of a greatsword from the side, then another full swing of a mace to its head when it stumbled. They both called out their moves, so it sounds like they’re perfectly synchronized.
+
+I’m seeing that individual enemies on their own aren’t very strong. These may be ants, but they’re large ones, so I receive 3 capacity for each kill. Now that’s what I’m looking for. This was a difficult fight for the servants, so I restore their health. Maybe I can leave small amounts of damage to auto-regen. If things get bad, then I can resort to Life Assignment.
+
+I continue forward, mining from the walls occasionally, when I hear the sounds of combat from up ahead. Other people must be here. The further I go, the more the path branches off, so I might actually be heading toward another entrance to the mine. The maze-like paths here make it feel like a dungeon, although it’s no different from any other map in the game.
+
+As I head down the straight path, I start to hear loud voices, and eventually I see the distant figures of people… Hmm, I hear a lot of “my liege”s there. It must be Mr. Musasabi’s party.
+
+“Why, if it isn’t the princess! I don’t see you here very often… Oh? Does that yellow marker mean you have servants?”
+
+“Good day. Funny running into you here. These two are with me to help gather materials for new equipment. I believe Mr. Skelly has posted about it on the BBS already, but this is the result of Necromantic Magic.”
+
+“Oh, so you really have become a necromancer, my liege!”
+
+“It’s a complicated thing, and not just anyone can become a necromancer…”
+
+“So it’s out of our reach. Well, let us carry on.”
+
+Mr. Musasabi explains that the plan is to take turns fighting enemies if we run into another party, then split up again once we reach a fork in the road. First-wavers really do seem like a peaceful group.
+
+“A war of words does nothing but waste time. Everyone wants to have fun, do they not? Besides, forks in the road come quickly here!”
+
+This is also a party of top players…meaning that anyone at the top levels really isn’t that different from one another. Their IRL circumstances, be it work or school, will allow for a fixed cycle of play. In other words, you’ll start to find anyone who plays for the same amount of time as you in the same hunting grounds, and you’ll start to develop a relationship with them. It also seems harder to start fights in a game as realistic as FDVR.
+
+“Most of the people in this area are top players, my liege. There’s a high probability that we will be fighting alongside each other in future raids.”
+
+Five enemies appear along the way as we walk and chat. I let the players go ahead to challenge them.
+
+“Of course, my liege.”
+
+“Onward, onward!”
+
+Mr. Musasabi is in a party of six. They’re easy to spot, as they’re all dressed in ninja outfits. I can tell how their friendship started at a glance.
+
+“Hiyaaah!”
+
+“Hiyah! Hiyah!”
+
+So this is what I heard earlier? They scream with every attack. At least you can tell they’re top players by their movements.
+
+“Hacchah!”
+
+“Hiyah!”
+
+They traded places to protect an injured member… They really do know what they’re doing.
+
+“Farewell!”
+
+“Depart, beasts!”
+
+Oh, it’s over? These ninjas aren’t even close to historically accurate. You can tell they’re all slayers.
+
+“Well, I can certainly tell how much fun you’re having.”
+
+“Indeed. It’s incredible.”
+
+“It’s the best of fun, my liege!”
+
+We continue on our path again, only to run into four enemies next: two lancers, one fighter, and one shooter. The Ant Shooter must be the one who shoots poison. I’ll leave the lancers to them and handle the other two.
+
+“Unit One, take out your spear.”
+
+CLACK
+
+I bait the fighter with a Light Lance like before, then shoot a Light Arrow at the shooter to draw its attention. My rapier can’t attack as frequently, but I’ll just have to accept that. I tell my servants to go mess with the lancers.
+
+I’m about to deal with the fighter like before, but the shooter suddenly sends something yellow flying at me. I block it with Royal Counter. I see that the poison is being registered as a long-distance physical attack like an arrow, not a spell.
+
+To be honest, my rapier is more like a shield to me than a weapon. My spells use the tip as a magical catalyst, unless I put in the conscious effort to change that. In other words, if I focus, it doesn’t matter where I point the rapier. I use it to block hits and attack with my spells. This is my combat style—I focus on magic and land a rapier attack only when the opportunity presents itself.
+
+I continue to assault the fighter with Nox Shot and Light Lance while I keep the shooter occupied with my Light Arrow. I can’t let these two high-level enemies focus on my servants, or I’ll lose out on capacity. Since I see them as equal to me, I take on the enemies myself.
+
+My Nox Shot pierces the fighter, leaving me to deal with the shooter. I block the incoming poison volleys, fire off spells, and close the distance between us since my spells work best at close range.
+
+The fighter had the highest stamina of them all, followed by the lancers, then the shooter, whom I finish off in no time at all.
+
+After that, I help Unit Two take out the enemy he was handling, and finally, I get to absorb all four enemies with my ritual.
+
+“Your Parry is most impressive as always, my liege. What is that stylish ritual of yours, exactly?”
+
+“It’s my Dark Ritual. I absorb these to gain capacity, which I use to summon servants.”
+
+“I see… Is this Necromantic Magic? I understand why not all can accomplish it. What becomes of the drops?”
+
+“They despawn, of course.”
+
+“Ah, I see… Although, I hear that ant armor can be used to make light armor.”
+
+“Grr…but I want my capacity…”
+
+Right now, only Unit One is wearing the armor I earned when we defended Starting Town. Unit Two, as well as the future Unit Three, need armor too…
+
+Mr. Musasabi’s party defeats the rest of the approaching enemies, and once we reach a fork a bit further up, it’s time to part ways.
+
+“I’ll be going now.”
+
+“I bid thee farewell!”
+
+I continue on, defeating any ant that crosses my path and gathering whatever ores I can, ending up with copper, iron, nickel, and cobalt. I stopped finding copper once I reached the area where nickel spawned, but most of what I found after that was iron, with only a bit of nickel and cobalt along the way.
+
+It seems like you really do have to go quite deep into the tunnels. The enemies started at level 23 or so, going up to level 26 deeper in.
+
+The middle of the mine shaft was like a giant plaza. It was also a safe area, so I was able to keep mining while also finding time to log out and eat dinner. I came out with large numbers of ore, capacity, and even a few ant materials. It’s still early, but maybe I should go to bed. No, I can’t. I never delivered my potions. I’ll hand them over before going to bed. The event ends today, and since holding on to them won’t do me any good, I can only hope someone will take them off my hands.
+
+ 
+
+I warp to Starting Town via portal and decide to go pay Granny Meghan a visit. Since you need permission to sell at her store, I’m not sure if she’ll take them or not, but I suppose it doesn’t hurt to ask. I head straight to her shop.
+
+“Hello. Do you take potions, by any chance?”
+
+“Are those for the new outsiders? Go take them to the pharmacy next to the adventurers’ union,” Granny Meghan answers.
+
+“Now that I think of it, I never even looked into what places sell potions.”
+
+“Well, I know you have no use for them. I’m sure the pharmacy’s dying for the supply, so head on over.”
+
+I leave the store and head to the pharmacy next to the union. It looks like the adventurers’ union has the weapons shop to the left and the pharmacy to the right. I’ve passed by it so many times too, but somehow, I have no memories of the place whatsoever. It must have simply not caught my interest before.
+
+“Good day,” I greet the clerk on duty.
+
+“Welcome. Can I help you find something?”
+
+“No, I’m actually here to give you some potions.”
+
+“Thank you so much! Come right along then.”
+
+To be technical, the pharmacy here is more like a compounding pharmacy. I take in the rows of potions on display, as well as the smell of the place, which reminds me of an IRL hospital. Although, unlike an IRL hospital, there’s also the scent of magical herbs. It’s not the minty freshness you might expect, but more like the scent you get when you grind leaves together.
+
+Well, it doesn’t exactly matter, since it fits the setting so perfectly. I take my potions out of my pouch and place them on the counter. There’re twenty-five HP Potions and 366 Beginner’s HP Potions.
+
+“I actually have leftover bottles too. Do you need them?”
+
+“Certainly, if they’re a quality of C or higher.”
+
+I end up handing over my 297 bottles as well. Even though this was a donation quest, the clerk ends up paying me approximately 17,000 gold for the lot. And to think these were just the byproduct of my attempt to raise my Alchemy skill. I’m happy to see they’ll buy the potions for a slightly lower price than what they would be sold for. I’ll never use any potions for myself, and if anything, I’m glad they’ll stop taking up space in my inventory now.
+
+I think I’ll leave the shop and go to bed now.
+
+Tomorrow is the update patch. The second wave of players is finally joining. As soon as the maintenance is over, I need to go see Mr. Ertz.
+
+
+# Chapter 3: Update—The Second Wave
+ 
+
+I DECIDE TO USE the maintenance downtime as an opportunity to spend a few hours doing homework in the morning. Just before lunchtime, Akina shows up to talk to me.
+
+“Sis! An FLFO dev is going to do a livestream this afternoon!”
+
+“What…? During the maintenance?”
+
+“The title is ‘Yamamoto Ittetsu’s Time-Killing Stream.’”
+
+“He said that working things out is his job. Should he really be killing time while on the clock?”
+
+“Who knows?”
+
+I was going to do my homework until the maintenance finished up…but I guess I can watch the stream at the same time.
+
+“We’re live, Mr. Yamamoto.”
+
+“Ah, so I didn’t make it in time?”
+
+Now that it was afternoon, the stream starts up with Mr. Yamamoto eating lunch in the cafeteria.
+
+“Howdy, folks! It’s me, a higher-up!”
+
+“It doesn’t sound like you’re taking this very seriously…”
+
+“But it’s my own personal stream. I’m gonna eat my lunch and talk about the new patch notes, so until then, enjoy watching an old man stuff his face on stream.”
+
+“Did you lose a dare or something?”
+
+Akina and I are also eating our lunches as we watch. Today we made soumen noodles—a nice and easy dish.
+
+“Ooooh, what could it be? Let’s check the notes… They’re adding new daily, weekly, monthly, and biannual quests? Changing the drop rate for meat… Oh, and they’re adding guilds too…”
+
+“There’re new dailies now?”
+
+“It looks like it.”
+
+“I’m curious to see what the new meat drop rates are like.”
+
+It’s the first update since the game was released, so it sounds like it’s going to be a big one, full of things like new items, bug fixes, and changes to mechanics.
+
+Mr. Yamamoto says that he’s eating a katsudon lunch set from the cafeteria. It comes with miso soup and pickled veggies. It certainly sounds like a filling lunch.
+
+“Phew, that was great! All right, shall we get back to the update?”
+
+Now that he’s finished eating, he heads into another room and takes out a controller.
+
+“First of all, the biggest change with this update is the second wave of player sign-ups. The total player count in the game is going from approximately 20,000 to 60,000 players. Next up are the daily quests. We’ll be adding new login bonuses and dailies. The daily quests will offer rewards that you can think of as pocket money, weeklies give consumables that you might enjoy getting, monthlies offer fancier versions of weekly rewards, and biannual quests give you 10 whole SP each!”
+
+So they’re not the kind of login bonuses you have to collect daily or else you lose your login streak—according to Mr. Yamamoto, they come from the total number of daily quests you complete. If you clear half a year’s worth of quests, you’re guaranteed to get the final prize. He says this should be a relief to those of us who can’t play for certain periods of time, like if we have business trips.
+
+“The game does have ‘life’ in the title, after all. Living in that world for half a year should come with some newly learned skills, don’t you think?”
+
+The daily quests are all a little different, so we’ll be able to choose which of the dailies we want to complete each day. This is supposed to prevent those feelings of obligation, like “Aw man, I’ve gotta do my dailies first…”
+
+“Plow X fields.” “Collect X vegetables.” “Create X potions.” “Defeat X monsters.” “Read X books.” There’s going to be all kinds of things like that.
+
+“If you think up any dailies that would really suit your own personal playstyle, try sending them in to the devs. I think you’ll be able to see most of them added to the game.”
+
+The consumables you can choose to receive from the weekly quests are the same gifts I was offered after my bug report…except for the SP. There’s a combat consumables set (potions, etc.), production consumables set (materials, etc.), and a one-hour skill EXP boost ticket (must be used within seven days).
+
+“Oh, about that EXP boost…you’ll be able to raise your first-tier skills a whole lot with that one. For second-tiers, well, it should help a bit? If you’re planning to use it to level third-tiers, you may as well rip it up.”
+
+Potions and materials received will depend on the level of the person claiming them.
+
+Monthly quests will offer money along with the same selections as weekly quests, but with more items included.
+
+By the way, these quest times are determined by IRL time and not the four in-game days that go by during one real day. The quests reset at four in the morning to account for workers who come home late at night or for those who get called away on urgent business.
+
+“Next up… We’re adding a dungeon to Starting Town!”
+
+“No way! A dungeon!”
+
+“Okay, sorry for the exaggeration…but it’s a place that the first wave of players won’t have any need for.”
+
+“Oh… Oh no…”
+
+My sister’s excitement just went out the window. Mr. Yamamoto must be talking about a way to deal with the traffic in town, right?
+
+“We made Starting Town a pretty big place, but since the hunting grounds rely on random spawns, this dungeon will give you whatever you need. Head there if you feel like the hunting grounds are too crowded.”
+
+It sounds like, with no bosses to speak of, it’s really just a simple measure to prevent overcrowding.
+
+The enemies come from the northern mountains, eastern forests, western forests, southern forests, and areas around town. Besides the fact that you can select which enemies you fight, it’s otherwise a normal dungeon in terms of mechanics. Those of us from the first wave are allowed to go test it out, but we won’t get much out of it. It does seem like a way to farm rabbit and wolf meat, though.
+
+The map of the dungeon will change each time you enter. It contains a base level of plains, then caves, and then a forest.
+
+Mr. Yamamoto also says it’s supposed to stay around for a while. I’m sure we’ll be seeing a third wave at some point too.
+
+“Let’s see. Next up…”
+
+He continues to give simple explanations about each new addition while snacking on ice cream and sweets. Since he’s streaming from his personal account, he clearly doesn’t care about putting on a show.
+
+“What else… Ah, how about this? We’re adding a new public board to find people to play with. You can find it behind the Stellura statue in each town’s center, as well as next to the quest board in the adventurers’ union. If you’re interested in full immersion or RP, be sure to check it out. But if you don’t care about that stuff, you can also bring it up in the UI at any point. It’s not easy to get by in an MMO without this sort of thing.”
+
+Now that I’m thinking about it, we’ve always had an official BBS but never a feature for finding parties and such. This should make it easier to find random players to team up with.
+
+“The board will have tags, like for hunting, production, and trading, so don’t forget to use them if you’re looking to join up with people.”
+
+You start the search process by choosing a hunting, production, trade, or skill tag. If you select hunting, you’ll be shown boxes for location, time, level, roles, and comments, which you can fill out as needed.
+
+“The location is to specify which hunting grounds. Time is for how long you want to play, level is for what level range you want to team up with, and comments are a free space to add a message of up to 200 characters. As for role…we made it so you can choose from things like tank, melee, ranged, combat magic, support magic, healing, and performance. I’ll give you an example…”
+
+ 
+
+Ex.
+
+Location: North of Starting Town
+
+Time: Until midnight
+
+Level: 10 or higher
+
+Role: Melee, attack magic
+
+Comments: Melee fighters, please use blunt weapons! Any magic attribute is fine!
+
+ 
+
+“That’ll do it. By the way, the ‘healing’ label is for people with Holy Magic or those who can throw potions. Though I doubt you’ll find many potion throwers out in the wild.”
+
+Potion throwers…wasn’t there a Pitching system in the game?
+
+“Right, you can get Potion Pitch under Stone Throw. Is that what he means?”
+
+“There’s no point in getting it if you’re on your own. You might as well be throwing your money away.”
+
+“It would be better if there was someone who could return all those materials back to you. A solo player has no hope of making them back up again.”
+
+That’s just the way it’s got to be. I imagine that most people with Potion Pitch who might join a team as a healer are making their own potions, and for that, they’ll need materials.
+
+You have to throw a potion at a teammate to heal them or at an enemy to inflict status ailments on them. It’s a unique combat style. I could see them playing as doctors, alchemists, or maybe even witches, depending on the person.
+
+“Those interested in production can also leave a location, time, level, skill, and comments. The role section is replaced by skills where you can select from Gather, Mine, Logging, and of course, Fishing too.”
+
+ 
+
+Ex.
+
+Location: Volcano
+
+Time: Leave at 8 p.m. and finish by midnight
+
+Level: High enough to fight
+
+Roles: Gather, Mine
+
+Comments: “Let’s go mining. Prepare your own heat-resistance measures.” or “Leader has Heat-Resistant Magic.”
+
+ 
+
+“By the way, crafting requests fall under trades, not production. Let me explain trade requests. The categories fall under buying, selling, creation, and exchange. Once you choose one, you can fill out each of the boxes.”
+
+ 
+
+Ex.
+
+Selling: Iron sword
+
+Asking: 15k
+
+Quality: B
+
+Comments: Secondhand crafted item. Slightly damaged. Contact me on whisper chat.
+
+ 
+
+Buying: HP Potions
+
+Offer: See comments
+
+Quality: See comments
+
+Comments: C+=500, B-=600, B=700
+
+ 
+
+Creation: Red undergarment
+
+Seeking: Needlework Knowledge
+
+Materials: Bring your own
+
+Reward: Consult
+
+Comments: It’s gotta be red.
+
+ 
+
+“As for exchanges, you just tell ’em what you’ve got and what you want for it, then take things to whispers. I guess you can throw in bonuses too, or just let them leave it in the log if you want to go to bed. We’ll also have whisper chat and party request buttons for the shared boards. Feel free to chat with whichever you prefer.”
+
+The price changes based on quality, just like with HP potions, and you can use the comments to specify if you want multiples.
+
+As for why he used red undergarments as an example item…I won’t even bother questioning it. I doubt it has a deep meaning. He probably just thought of it off the top of his head. Those potion prices aren’t accurate to the current game, either.
+
+“As for skills, I honestly don’t know if you guys will use this or not…but maybe it’ll be useful for performers? You choose a skill to raise and search for people who will level up with you or give you a hand. I think performers could use it to find people to help put on a concert. Well, it’s there for you now, so feel free to use it.”
+
+Skills don’t level up unless you use them or participate in some kind of related event. Anyway, I’ll make a mental note of these new recruiting boards.
+
+ 
+
+It’s now been almost five hours since the start of the stream. Maintenance should be just about over soon.
+
+“Mr. Yamamoto!”
+
+“What?!”
+
+“Everything’s going according to schedule.”
+
+“All right, then we’ll be back up at 5 p.m. just like we announced.”
+
+“Roger that!”
+
+“Okay, folks. Have you downloaded the patch already? Are you ready to log in? There should be lots of beginner’s equipment coming to Starting Town!”
+
+I bet it’s going to be really crowded for a while. I want to avoid that sort of thing, but I do have business with Mr. Ertz. I won’t be able to escape Eli and Abby’s arrival with the second wave of players, either. I did log out in Starting Town yesterday.
+
+All right, I’ve made some good progress on my homework. I think that’s enough for today. The livestream’s over too, so I’ll go queue up to log in.
+
+ 
+
+Standing by to log in. Please wait. You are number 1,052 in line.
+
+ 
+
+…Ah, okay. I’ll keep an eye on it and wait for the number to go down. It only takes another minute or so before I manage to log in.
+
+There’s a blinking icon on the right side of my vision. That must be my daily quest. What’s on the menu today? Let’s see… Improve an existing skill, cook any item, use Alchemy to produce an item, harvest a resource… There’s quite a lot.
+
+Combat…production…harvest…other… Oh, there’s a quest for reading a book too. That must be for Language Learning.
+
+All right, I’ll get cooking then. Mr. Ertz isn’t around yet, so I’ll make some jerky and give it to the consignment seller.
+
+As for a smoking liquid… I’ll make a brine by dissolving salt and sugar in water, then soak some wolf meat slices in it. Next up is Fast Reaction…although I don’t have enough MP, apparently. I undo Inventory Expansion, wait for it to recover, and use the spell.
+
+I take the meat out after it’s soaked for two days and remove some of the salt. Then I dry it with Humidity Control and place it in the smoker.
+
+Once it’s ready, I take the meat out and leave it to rest for the day.
+
+Let’s see…I’ll do this over again five more times. One piece of meat makes sixty strips of jerky. One person can stave off hunger with a few strips, so this can probably feed twelve people. Five pieces of meat will make 300 strips.
+
+While I’m waiting for my MP to regenerate, Mr. Ertz logs in. I’ll head to the trade union when I’m done and hand over the jerky, then visit the usual spot.
+
+I receive 1,000 gold for my daily quest reward. That’s really only pocket change. Oh well. I’ll just go to Mr. Ertz’s place.
+
+ 
+
+I thank the innkeeper and head outside where I spot a group of people wearing matching outfits. I don’t see anyone with blonde hair drills, so I continue onward to visit Mr. Ertz. I can contact the others IRL when I want to meet them.
+
+I thought it was going to be difficult to walk around town, but people are actually clearing paths for me. That’s very nice of them. I’ll take bold and elegant steps in that case. With that, I arrive at the shop.
+
+“You’re like, what’s that guy’s name? Moses?” jokes Mr. Ertz.
+
+“I was able to get here pretty easily thanks to them doing that. Anyway, I got some ore for you, so I’d like to sell it and have some crafting done too.”
+
+“Oh, I can do that for you. What do you want crafted?”
+
+“A one-handed hammer, one-handed sword, two-handed sword, small shield, and a large shield. Can you do that?”
+
+“That’s a tall order. Is this for your Necromantic Magic?”
+
+“Yes, it is.”
+
+I wonder if they can use bows too. That request would have to go to Ms. Primura, though.
+
+“How much will it cost?”
+
+“Let’s see… If you want the highest quality, it’ll be about 850,000 gold, but if you want them one grade lower, then it’s 600,000. It depends on what you want to sacrifice.”
+
+“Iron is the highest quality?”
+
+“No, that’s steel now. I’m looking for more ways to raise the quality. If you’re fine with C quality, then I have some made already.”
+
+“Hmm… How far have you gotten?”
+
+“I can get up to B at the moment, but if you want a full set, that’ll cost you over a million gold.”
+
+“I can do that. I saved up a lot of gold during the tournament.”
+
+“Ah, I see. All right… I also have one-handed swords, two-handed swords, and large shields that are above a B grade.”
+
+One-handed and two-handed swords are both popular and essential, so he ends up making them a lot. People only buy large shields occasionally. I’ll ask him to contact me whenever he makes the rest of my order at over a B grade.
+
+“I’m finally gonna be able to buy a shop!” said Ertz.
+
+“Oh, it’s about time.”
+
+“A million gold will be plenty for that. What say we settle on that exact amount? That would be…twenty-three one-handed swords, twenty-five two-handed swords and large shields, fifteen small shields, and twelve hammers.”
+
+One-handed weapons are popular, as are two-handed swords, although he needs materials for them. The same goes for large shields. He’s willing to discount the small shields and hammers a bit. It all sounds good to me, so I put in the official request.
+
+Oh, that’s right. I need my dismantling knife repaired, and I need to buy two more pickaxes too. I’ll have Mr. Ertz buy the iron ore and ant drops from my list. That will be a return of 90,000 gold or so.
+
+After that, I go to the union and withdraw my remaining 650,000 gold, then pick up my steel one-handed swords, two-handed swords, large shields, and two steel pickaxes. The weapons cost 730,000 gold, while my repairs and pickaxes cost 4,200 on top of that.
+
+“Thanks a bunch! You’ll have to wait a while longer for the one-handed hammers and small shields. Do you have any preference for the type of hammers?”
+
+“I’m fine with maces. My servants may not be able to use anything too complicated.”
+
+“Simple’s always best. Leave it to me.”
+
+“Oh, that’s right. Do you buy the iron equipment drops from the war?” I asked.
+
+“I do, so I can break them down. The price depends on the piece.”
+
+I have him buy my iron sword, spear, axe, dagger, and greatsword for 9,000 gold, while I keep the mace for myself. I also keep the small shield I bought, since it isn’t iron. I don’t have any substitute for that one yet.
+
+Now it’s time to give my new steel equipment away via Secret Art of Necromancy.
+
+Oh yeah, when you equip items that are too advanced for your stats, there’s supposed to be a bit of a penalty or something. I hope that’s not going to be a problem for my servants.
+
+“I summon you, skeletons.”
+
+It’ll be quicker to just try it out myself.
+
+“Oh, check out the bones,” comments Mr. Ertz.
+
+“Does this new equipment work for you, Unit One?”
+
+The two servants pause for a moment before nodding their heads, so it looks like there’s no trouble. Maybe the penalty doesn’t apply to servants? Or maybe the skills are giving them a boost.
+
+“They say it’s all right.”
+
+“Yeah? That’s great. I still don’t have a good handle on the penalties this stuff will give.”
+
+“Unit Two can use two-handed swords, so I think his stats must be pretty high.”
+
+“A pure magician with no Strength at all won’t be able to raise those stats!”
+
+“He can fight in the second area, so I think he’s stronger than second-wave players, at least? Although I don’t know what’ll happen if someone uses Light Magic against him.”
+
+“Is Necromantic Magic pretty strong?”
+
+“I’m not entirely sure. Some of my own buffs are affecting them.”
+
+I can’t make a solid judgment with nothing to compare it to. Their AI level seems higher than my own base, but that shouldn’t affect their stats at all.
+
+“By the way, if you’ve got any food, c’mon and sell it to me!”
+
+“Um…I do have bear soup,” I answer.
+
+“Yeah? That works for me.”
+
+“How many do you want?”
+
+“Can I have six?”
+
+“Sure thing. That’ll be 800 gold per soup, for 4,800 total.”
+
+“No problem at all.”
+
+I sold most of them off during the tournament, so I’m pretty empty-handed now, but thanks to that, my inventory is pretty free. Though it’s hard to say how open the remaining nine slots really are.
+
+Now…I think I’ll cook. I’ll make some rump steaks and sandwiches. I have baguettes I can cut up for sandwich bread.
+
+“Hey there!”
+
+“Hi.”
+
+“Good day, Ms. Primura.”
+
+Ms. Primura slips through the crowd and starts setting up her stand next to Mr. Ertz. As always, I set up my own cooking set a bit behind them.
+
+I use my Fast Reaction on my baguettes while I grill up the rump steaks. Since I don’t have any lettuce, the sandwich can have cabbage, and I can use roast beef in place of ham. But the roast beef will require the stone oven, so I’ll start with the bread.
+
+The bread is made with my art—starting off with natural yeast to form a dough that I knead, let rest, and repeat to mass produce the bread until my MP runs out.
+
+Once I’m out, I put the dough in the oven and handle the steak next. I cook it with beef fat and garlic, and I make sure it’s grilled well on both sides. Then I pour in brandy to create a flambé. Finally, I extinguish the flames and set it on a plate where I keep it warm, flip the bread over, and get to work on another steak. By the time that one is finished, the bread is ready to come out.
+
+“I haven’t seen such mouth-watering cooking in a week now!”
+
+“No fair! Sell me some steak!”
+
+“Sure, if you want one.”
+
+“Me too!”
+
+“Are they…1,000 gold each?”
+
+“Twelve hundred. The buffs depend on the quality…but please wait just a little longer.”
+
+“Sure thing.”
+
+I grill up another steak and take the bread out of the oven. For now, I’m done with cooking and can sell my products to the two of them.
+
+Oh, they came out with buffs. I collect the bread and note the results. Rump steak, garlic, and brandy results in an increase to Dexterity.
+
+“It’s B+ quality and comes with a Dexterity buff of 5% for five hours. That’ll be 3,000 gold.”
+
+“I’ll take it!”
+
+“I’ll take it!”
+
+“Looks like we’ll have to rely on a dice roll.”
+
+The five-hour time limit is IRL time. One day in the game is six IRL hours, so for those who engage in production, it’s a real treat of a buffed meal.
+
+We roll 1d100 with the winner being whoever gets the higher number. They both pick the dice roll from the menu, select the type, and see the die appear in midair as an item. It’s big enough for a child to carry it in their arms.
+
+“Victory is mine!”
+
+“Victory is mine!”
+
+I wait for their violently thrown die to settle. It looks like dice have no collision detection, so we can’t kick them to change the outcome or something like that. They phase through other players too.
+
+A pop-up display appears above the die once it falls still, as well as above the player who threw it.
+
+“Woo-hooooo!”
+
+“Grrrrrr!”
+
+Looks like Ms. Primura wins.
+
+All right, now I can get back to cooking. The next Dexterity buff I manage to create will go to Mr. Ertz.
+
+I take out my freshly baked baguette and cut into its side to create three even pieces of bread, then I chop the cabbage up into thin strips. I place down a layer of chopped cabbage on the bread, followed by a layer of roast beef. I sprinkle some fried onion slices on top, then pour some gravy over the rest of the fillings…and with that, it’s complete.
+
+Now that I think of it, I haven’t made any deep-fried foods, have I? For a sandwich filling, chicken katsu probably works better than fried chicken. Maybe beef katsu would be good too… I have both flour and potato starch on hand, so I can definitely do that. Honestly, I should probably try making soft bread as well, instead of just the French style.
+
+“Would either of you buy sandwiches if I had some ready?”
+
+“Well, this is a game, so I’d buy them…but wouldn’t combat players appreciate sandwiches more?”
+
+“There were quite a few people who had monsters show up while they were eating, and they got really upset about dropping the food made by the princess.”
+
+“Of course, people told them to just eat in the safe zones…”
+
+“Some were just blinded by the delicious jerky. It’s surprisingly rare.”
+
+That must mean that some people eat with one hand the whole time they’re on hunting trips.
+
+“I remember Cecil having jerky in one hand and a meal in the other. He eats while he takes breaks but also while he’s focused on hunting.”
+
+“Ever since the martial arts tournament, the consignment sellers have had lots of meat. The people from the cooking board were so happy they were finally able to cook it, and after selling meals to people, they had enough money to buy some more food for themselves.”
+
+The chefs must have realized that they could buy meat, cook it up, and sell it for profit once they learned that meat was something people wanted to buy. Thanks to that development, people on the cooking board obtained Fast Reaction and upgraded it to a second-tier skill, allowing their production rates to increase a bit. But it’s probably not any faster because of its MP usage.
+
+They also apparently learned about developing flavors from things like hot dogs, which increase MP consumption…so it’s still going to be a while before they catch up to me.
+
+Anyway, let’s move on to deep-fried foods. Wolf meat… No, the softer rabbit meat will be easier to use. But that’s for later! Right now, I need to focus on baguettes and steaks.
+
+The steaks result in Strength and Dexterity boosts. Sandwiches only give Stamina. Strangely, freshly baked baguettes offer no buffs at all. Maybe they’re too simple? I wonder if croissants give anything. I have butter, so I could try making some now.
+
+I set the topic of croissants aside for the moment and get straight to working on the items I had planned. I end up with fifty steaks and forty baguettes. Next, I lower the heat in my stone oven so I can finish up the roast beef.
+
+ 
+
+[COOKING] HANDMADE SANDWICH
+
+Rarity: NO Quality: B
+
+Satiety +30
+
+Bonus effect: Stamina +5%
+
+Time limit: 4 hours 30 minutes
+
+Chef: Anastasia
+
+ 
+
+Continuing along with the baguettes I have leftover in my inventory, it comes out to a total of 123 sandwiches. I made a bit too much roast beef, though, and have two leftover helpings. Oh well. I can just keep them on hand.
+
+“If you have anything with Dexterity, then I’ll take another two or three.”
+
+“Me too!”
+
+“Sure thing.”
+
+I end up selling four of each to the both of them. The buff meals come out to a total of 24,000 gold. A delicious profit for me.
+
+“Oh, that’s right. Do you have any bows for beginners, Ms. Primura?”
+
+“Hmm? I only have ones that are one level higher than beginners’ bows.”
+
+“Would it be possible to borrow one?”
+
+“For what?”
+
+“I want my Unit One to carry it and see if he can use it or not.”
+
+“Ah! Your mass-produced skeleton, right? Go ahead!”
+
+“Thank you.”
+
+Mass-produced skeleton…? Well, I’ll ignore that comment. I recall the two servants, who had been out all this time, change up their skills and equipment, and then summon Unit One again.
+
+“Well? Think you can use it?”
+
+CLACK CLACK
+
+No good? I wonder what the issue is.
+
+“You don’t know how to use it?”
+
+CLICK
+
+I see… It’s a stat issue. So if he can use swords and shields like normal, I can safely assume this is a problem with his low AI level? He could probably learn to use a bow if I taught it to him from square one. Yeah, that sounds annoying. I say goodbye to my skeleton archer and return the bow to Ms. Primura.
+
+“It looks like it’s going to be a while before he can use a bow. I don’t have much need for stabbing or long-distance weapons right now, so that’s fine with me.”
+
+“I’m sure it would be hard to get equipment for a humanoid servant…” she comments.
+
+“But there aren’t really any humanoid servants available right now.”
+
+Summoning Spell and Necromantic Magic function differently, so even summoning the same type of skeleton will result in quite a difference. Which is the better skeleton will be based on the person doing the summoning, but for undead, the order of value, from best to worse, goes Secret Art of Necromancy, Necromantic Magic, and Summoning Spell. Any other order would be trouble for us undead.
+
+ 
+
+I log out for dinner, eat, take a bath, and then log back into the game.
+
+“You picked the perfect time to come back,” says Mr. Ertz. “I just finished your maces and shields.”
+
+“Oh? You’re done already? I’ll go get my money then.”
+
+“That’ll be 270,000 gold.”
+
+I head to the trade union and retrieve my jerky profits. After the fees, it comes out to a bit over 110,000 gold, so I withdraw enough to cover the rest of the costs. Let’s see…I’ll take 100,000 more gold, so I have 3.4 million gold remaining in the account. Armor is going to deplete that quickly, so I’ll save it for later. I go back to the stand to purchase my items.
+
+“Here you are.”
+
+“Thanks as always!”
+
+I change Unit One’s equipment to a steel mace and large shield. Unit Two can keep his two-handed sword for now, and I’ll also keep Unit One’s previous mace around for him. Yes, this should be perfect.
+
+“Hey there, everyone!”
+
+“Yo!”
+
+“Hey.”
+
+“Good day, Mr. Dentelle.”
+
+Mr. Dentelle sets up his stand opposite of Ms. Primura, on the other side of Mr. Ertz.
+
+At the same time, Ms. Salute, the Compounding user, and Ms. Nephrite, the Handicraft user, arrive next. Ms. Salute sets up next to Ms. Primura, while Ms. Nephrite sets up next to Mr. Dentelle.
+
+The five of them begin to talk about their future shops. It sounds like they ideally want their shops as close to each other as possible.
+
+I wonder what I should busy myself with until it’s time for bed…
+
+“I see Tasha!”
+
+“We finally found you, Tasha!”
+
+Oh, I know those voices… Well, actually, there’re only two people in the world who would be calling me “Tasha.” I turn around and see the two girls, who—wait… Ha ha! Aha ha ha ha!
+
+“Don’t you think it’s rude to laugh when you look at someone’s face?”
+
+“Well, you went a bit overboard, didn’t you? Look at those incredible drills.”
+
+“Aren’t they lovely?”
+
+She tugs at them with her hands, and they immediately bounce back to their perfect drill shapes. Eli’s drills are extremely tightly wound, while Abby’s more subdued drills are more like pigtails that curl up at the ends.
+
+Eli’s hair really does uncoil nicely when tugged. It’s fun to watch them curl back up into the perfect drills each time.
+
+“Tasha! Look at this!”
+
+Abby lifts Eli’s drills with the palms of her hands and sends them bouncing up and down like springs.
+
+“Hee hee hee…”
+
+“This is fun!” Abby exclaims.
+
+“Could you please stop using my hair as your plaything?!”
+
+Abby ignores Eli’s glares and tries to leap forward and hug me…but the game’s unwanted contact defenses send her away. I can tell she’s shocked, so I decide to add her to my whitelist. She lunges at me again, and I stroke her hair while she wraps her arms around me.
+
+“You two are humans, aren’t you, Eli and Letty? Abby and Dorothy are…demons?”
+
+“That’s right. Abby’s going for the angel route and is focusing on Doll Magic.”
+
+“What about you, Eli?”
+
+“I think I’m going to focus on using whips.”
+
+“Is that…because you’re looking for that kind of aesthetic?”
+
+“Exactly.”
+
+“Holding a whip turns you from a young lady into a queen, so you might not want to go with that.”
+
+Letty’s suggestion is ignored with a huff. “How rude.”
+
+Eli’s going to do whatever she makes up her mind about, of course. I’m sure Letty understands that well.
+
+For now, I add all four of them to my friends list.
+
+“Ah, that’s right. You can have these, Eli. Please share them with the others.”
+
+“Potions?”
+
+“They’re garbage.”
+
+“Hey!”
+
+“They’re low-quality garbage from before I raised my skill levels. But they restore more stats than the Beginner’s Potions do, so please use them early in the game. The residents won’t buy them unless they’re quality C or higher, and I can’t use them because of my race. I’ve been wondering what I should do with them.”
+
+Eli hesitated for a moment. “I’m not sure about how you’re phrasing it, but very well. I’ll take them.”
+
+Yay! Free inventory space! My only option until now was to throw them away, but these four will find some use from them. Ah, this is actually the perfect opportunity to show them the stand that’s set up next to me.
+
+“You can ask this man for dresses and maid uniforms. He’s the best needleworker here, although his prices are somewhat high.”
+
+“Oh? Dresses and maid uniforms?” Mr. Dentelle speaks up. “I’ll cut the prices if you model the clothes for me and let me take screenshots. I’ll also pay you if you model some of my other wares too…but I’m getting ahead of myself. Where’s my silk? I know I have some…”
+
+Mr. Dentelle sure jumped on that suggestion. Are dresses and maid uniforms so appealing? We still don’t know what their base materials consist of. I haven’t found any bosses in the second area yet, but the enemies are too strong for me to make any more progress. That will still take some time.
+
+I’ll introduce them to the others here too. I don’t know when these IRL friends of mine will be able to use the shops, however, due to the prices. Just one weapon costs somewhere in the range of 200,000 gold—and that’s not getting into all the pieces of armor and accessories they’ll need.
+
+Well, I fulfilled my role of introducing them, so that’s all I can do right now. The next step is up to them and their wallets.
+
+“By the way, Tasha, do they have tea leaves here?”
+
+“I’ve been quietly looking for them myself, but I haven’t found any yet. I’m sure they exist, since this world has royalty and nobility in it…but it might be more of a problem with the trade routes than anything else.”
+
+“Hmm… Well, our first step should be to familiarize ourselves with the game while we raise our levels, right?”
+
+Right. They’ll never be able to search for tea leaves unless they get that out of the way first.
+
+If only my dress colors were a little nicer, I could go straight to a company myself… Well, that’s one option, at least. For now, I’m ignoring the matter of the missing tea leaves.
+
+We end up chatting all the way up to bedtime. But that sort of thing is fine from time to time. It’s all part of the charm of MMO games.
+
+
