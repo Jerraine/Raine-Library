@@ -37310,3 +37310,9633 @@ In her mind, the Concubine Chen was puzzled, thinking: [Isn’t the urban map yo
 
  
 Duan Ge: [I’m just wondering if this might be a bit too unfair for others.]
+# Chapter67
+When the director announced the change of map, the entire venue erupted in uproar.
+ 
+
+ 
+After all, the "home-field advantage" is a real thing.
+ 
+
+ 
+Among the attendees, several competitors might not excel physically but had plenty of experience in outdoor survival—children raised in rural areas had certain advantages on a deserted island, while muscles built in the gym might not be much help in the jungle.
+ 
+
+ 
+"Why the sudden change?"
+ 
+
+ 
+"I heard there's a bug in the deserted island map."
+ 
+
+ 
+"What kind of bug? If it's not serious, can't we just make do?"
+ 
+
+ 
+A host who usually livestreams cooking and advertising quietly complained, "With the map change, I’ve lost my advantage."
+ 
+
+ 
+"It's pretty serious. Apparently, a member of the development team slacked off and reused some ancient data, which caused all the T-Rex eggs to hatch on the island. There's no time to check the data, and if we use this map, we not only have to battle wild animals but also outsmart and outfight T-Rexes..."
+ 
+
+ 
+It's gone from "National Geographic Channel" to "Jurassic Park."
+ 
+
+ 
+The competitor who previously said it could be made to work fell silent for a moment, then grumbled, "Fine."
+ 
+
+ 
+They had to accept reality.
+ 
+
+ 
+They had signed performance contracts, and unless there were uncontrollable factors, they couldn't withdraw without paying a hefty penalty, as it's practically impossible for the show to bring in replacements last minute.
+ 
+
+ 
+[The T-Rex is killing me with laughter!]
+ 
+
+ 
+[I want to see Tong Zhao battle the T-Rex!]
+ 
+
+ 
+[This bug… it really shows that one bad apple can spoil the whole bunch in any industry. Luckily it was discovered in time; otherwise, finding out that a survival show turned into a dinosaur cooking show right before filming would be a huge loss.]
+ 
+
+ 
+The entire production team was relieved.
+ 
+
+ 
+However...
+ 
+
+ 
+After the announcement, Director Chen sat down beside Duan Ge with a big smile: "Sister Zhao, you heard the situation just now."
+ 
+
+ 
+Tong Zhao's situation was different from the others.
+ 
+
+ 
+She was a special invited guest, and her contract was drafted separately. The sudden map change was a breach of contract by the producers, giving her the right to leave without filming.
+ 
+
+ 
+Everyone else watched her with eager eyes.
+ 
+
+ 
+When the map change was announced, Duan Ge's usually calm expression showed significant signs of wavering—everyone was paying too much attention to her, even catching the slightest change in her demeanor.
+ 
+
+ 
+Was she scared?
+ 
+
+ 
+Although the black-box operation to change the data wasn't particularly difficult, a sudden map change would surely have some impact.
+ 
+
+ 
+Some competitors couldn't help but speculate.
+ 
+
+ 
+While they had preliminary activity data, being able to run and jump was completely different from surviving in extreme environments; otherwise, athletes could easily transition to special forces.
+ 
+
+ 
+"Yes," Duan Ge nodded. "I heard.”
+ 
+
+ 
+...
+ 
+
+ 
+And then?
+ 
+
+ 
+There was no "and then." Duan Ge watched him quietly, waiting for him to continue speaking.
+ 
+
+ 
+She showed no intention of taking a stance.
+ 
+
+ 
+In fact, Duan Ge knew he was testing her attitude—even in the apocalypse, she wasn't just a mindless brute relying solely on force. Being a leader required a good grasp of emotional intelligence. However, her mood was currently poor, and the director had just hit a nerve.
+ 
+
+ 
+She wouldn't lash out at just anyone, but if he had something to say, he should be direct.
+ 
+
+ 
+Tong Zhao was in a bad mood today...
+ 
+
+ 
+Chen Director speculated, but he also sensed the other contestants' unfriendliness towards her.
+ 
+
+ 
+Who could maintain a good temper in such an environment?
+ 
+
+ 
+There were plenty of big-name stars who loved to throw tantrums and act aloof, making cold faces and asserting their presence was not uncommon. Tong Zhao had previously seemed approachable enough to give him the impression of "maybe I can take advantage of her." But now, with that icy glare, he quickly dismissed his earlier underestimation. He wiped the flattering smile off his face and earnestly explained the situation, sincerely apologizing and hoping she would stay.
+ 
+
+ 
+After speaking, Director Chen was sweating profusely.
+ 
+
+ 
+He had mentally prepared himself for Tong Zhao to explode and say she wouldn't film anymore.
+ 
+
+ 
+After all, Director Chen knew very well that there was no black-box operation to favor Tong Zhao; her performance depended solely on herself. The public pressure she was under was immense. If she could find an excuse to walk away, it would be understandable... While she might have confidence in wilderness survival, she might not feel the same about a city map!
+ 
+
+ 
+An easy excuse had just been handed to her.
+ 
+
+ 
+[Tong Zhao doesn’t want to film anymore?]
+ 
+
+ 
+[This map change is way too sudden; who would be happy about that?]
+ 
+
+ 
+[Only she has objections while the other contestants unanimously agree? Is she really that noble?]
+ 
+
+ 
+Those who questioned were immediately countered by more informed viewers—
+ 
+
+ 
+[Exactly! In terms of this variety show, she is "noble" because her contract is different. A last-minute map change generally constitutes a breach of contract, giving her the right to opt out. Didn’t you see that some contestants also had concerns? Everyone came prepared for survival on a deserted island... It’s like a science student taking a liberal arts exam, got it?]
+ 
+
+ 
+This analogy was easier to understand.
+ 
+
+ 
+But then the comments quickly turned into a debate about the differences between the deserted island and city maps.
+ 
+
+ 
+...
+ 
+
+ 
+Duan Ge: “Okay, no problem.”
+ 
+
+ 
+“We really hope…”
+ 
+
+ 
+Director Chen's persuasive words were on the tip of his tongue but then paused, realizing that the other party had readily agreed: “Huh?”
+ 
+
+ 
+“A map change is fine,” Duan Ge patiently explained. “I thought you were going to mention other issues.”
+ 
+
+ 
+“…”
+ 
+
+ 
+Director Chen's bewildered expression garnered a unanimous [hahahahaha] from the comments.
+ 
+
+ 
+In that moment, the director deeply understood one thing—
+ 
+
+ 
+Don’t play games with Tong Zhao; just speak directly and clearly.
+ 
+
+ 
+After sweating profusely during the off-road challenge and even swimming in the pool, the production team gave everyone an hour to freshen up and rest before gathering in the shooting studio. This film studio had space for fifty holographic filming booths and was adjacent to a villa-style dormitory resembling a resort. As a special guest, Duan Ge enjoyed certain privileges, having an entire small villa to herself, complete with a garden enclosed by a grassy wall and an outdoor bathtub. Considering her status as a female star, she only took a shower indoors.
+ 
+
+ 
+Other contestants were relaxing in a Zen-like manner while waiting for the shoot to start.
+ 
+
+ 
+Some hurriedly sought advice from colleagues who had experience in urban survival variety shows, trying to adjust their mindset in the limited time.
+ 
+
+ 
+There were also a few individuals who weren’t even considered variety stars; they were merely lucky enough to be selected for a chance to earn some appearance fees, dreaming of winning the prize money. They eagerly searched for a chance to get autographs and photos with female celebrities.
+ 
+
+ 
+However, they couldn't find anyone.
+ 
+
+ 
+They didn’t see anyone in the rest area, nor were they able to gather with the director, and the villa door displaying Duan Ge’s name indicated that the owner was temporarily unavailable.
+ 
+
+ 
+Where could she have gone?
+ 
+
+ 
+In the end, a clever contestant pulled out their phone to check the live stream of “One Life Survivor,” clicking on the camera that followed Tong Zhao throughout—
+ 
+
+ 
+They had searched all the recreational facilities but had overlooked the gym inside the shooting studio.
+ 
+
+ 
+Meanwhile, Duan Ge was running on a treadmill at a steady pace.
+ 
+
+ 
+A flying camera hovered to her right.
+ 
+
+ 
+Under the camera, Duan Ge slightly tilted her face up, and a droplet of sweat slid from her tight jawline down to her collarbone. The gym lights illuminated her, making her skin appear dazzlingly white. Perhaps because she wanted to focus on exercising, she wore very light makeup, which highlighted the striking features that seemed sculpted by divine design—her high nose bridge and full lips formed an impeccable profile, resembling a beautiful girl straight out of an anime.
+ 
+
+ 
+Damn.
+ 
+
+ 
+So beautiful.
+ 
+
+ 
+Several male contestants watching the live stream couldn't help but start imagining—
+ 
+
+ 
+If Tong Zhao accidentally fell into their hands during the survival show, would they dare to eliminate her?
+ 
+
+ 
+They were thankful that the intelligent AI would block and suppress any inappropriate thoughts; otherwise, they were genuinely concerned about losing control.
+ 
+
+ 
+[Zhao Zhao is really working hard, completely different from her role in "Emperor Ming."]
+ 
+
+ 
+[The scariest part is that such a naturally beautiful woman is working so hard… Just finished a tiring challenge, took a shower, and now exercising. Does her stamina never run out?]
+ 
+
+ 
+[So now are they trying to set up Tong Zhao as a strong sportswoman?]
+ 
+
+ 
+[Huh? Is this really considered a character setup?]
+ 
+
+ 
+The comments almost erupted again.
+ 
+
+ 
+They didn’t because the time was up, and all the contestants gathered in the shooting studio.
+ 
+
+ 
+Everyone lay down in the holographic shooting pods.
+ 
+
+ 
+Duan Ge closed her eyes, waiting for the equipment to activate, and heard a faint child’s voice in her mind:
+ 
+
+ 
+[Big sister Duan Ge, you seem really irritable lately. Are you unhappy?]
+ 
+
+ 
+The chances for Zhao Zai to emerge were very rare.
+ 
+
+ 
+Since it had been so long, this personality was buried deep within, and it was only during the last check of her consciousness palace that Zhao Zai had awakened.
+ 
+
+ 
+[It's a bit,]
+ 
+
+ 
+Duan Ge didn’t want to scare her little self and explained actively: [Every world setting and life experience in the quick-traveling has been exaggerated—like Sister Lu almost losing her life due to betrayal by her husband, I inevitably ended up with blood on my hands in the apocalypse, and Xiao Chen developed an odd personality in the palace… Each of us has obvious character flaws, and I’m just a bit restless in peaceful times. Sorry about that.]
+ 
+
+ 
+Zhao Zai was puzzled: [Why does sister need to apologize to me?]
+ 
+
+ 
+Duan Ge: [Not becoming a perfect adult, I feel quite sorry for my childhood self.]
+ 
+
+ 
+At this moment, the equipment activated, and a strong wave of uncontrollable drowsiness swept over her, pulling her into the depths of consciousness...
+ 
+
+ 
+Zhao Zai still wanted to say something, but Duan Ge could no longer hear.
+ 
+
+ 
+...
+ 
+
+ 
+When she regained consciousness, all the contestants were initially in an uncontrollable state, with a full minute to absorb the introduced plot background.
+ 
+
+ 
+In "One Life Survivor," the contestants retained their original memories.
+ 
+
+ 
+Only the memories related to the survival variety show would be temporarily blocked, replaced by a new unified storyline.
+ 
+
+ 
+[This is Ganan City, an empty city.]
+ 
+
+ 
+[It was once the city you were most familiar with. You lived here, trading your labor or knowledge for meager rewards. A war has transformed Ganan City beyond recognition; every shadow could hide danger or opportunity.]
+ 
+
+ 
+From a bird's-eye view, the aerial shots captured the entire concrete jungle.
+ 
+
+ 
+If it weren't for the signs of destruction scattered throughout the high-rise buildings, it would remind one of a promotional video for a first-tier city.
+ 
+
+ 
+[Before the withdrawal of your country’s army, three supply points were left in Ganan City.]
+ 
+
+ 
+[Compared to the unpredictable airdrop resource packages that could land on your head or in front of the enemy, these three supply points offer you fair competition.]
+ 
+
+ 
+A low, soft male voice emphasized "fair competition."
+ 
+
+ 
+On the live broadcast, the map of Ganan City slowly unfolded, with the locations of the three supply points highlighted in bright yellow circles. Next, fifteen equally long routes in different colors were shown—this ensured that the "spawn points" for the five four-member teams were at equal distances from each supply point, making it a "fair competition."
+ 
+
+ 
+This information was marked as "For Audience Only" on the live stream, and the contestants were unaware.
+ 
+
+ 
+Some contestants might notice this detail and deduce their opponents' approximate positions.
+ 
+
+ 
+For those who couldn't figure it out, they would just have to guess.
+ 
+
+ 
+[Ganan City has no other living people. Your goal, as a group of twenty, is to survive for fifteen days. To stay alive, you must search for limited resources in this wasteland and learn to hide yourself in danger...]
+ 
+
+ 
+[Due to periodic gas attacks from the enemy, the area available for safe activities will keep shrinking. Try to find enough supplies while you still have the chance to explore!]
+ 
+
+ 
+[Alternatively, stealing from other teams is also a good option.]
+ 
+
+ 
+[You five teams come from five different countries, and the seeds of suspicion and conflict have long been planted in your hearts. Do you really have enough trust to collaborate and achieve a win-win situation across language barriers?]
+ 
+
+ 
+The "Language Barrier" option lit up on the live stream.
+ 
+
+ 
+All the guests were from China, and this was a difficulty setting to prevent full cooperation among them.
+ 
+
+ 
+[---Just try your best!]
+ 
+
+ 
+[You are respectively the Cloud Team, Sun Team, Star Team, Moon Team, and Thunder Team.]
+ 
+
+ 
+As the deliberately slowed narration played, the live stream switched between different teams. Since the storyline hadn’t fully been introduced, they were still unable to control their bodies, forced into a half-awake sleep as the plot unfolded.
+ 
+
+ 
+It was like an unskippable opening CG.
+ 
+
+ 
+[Friendly reminder: Enemy assassins are wandering in Ganan City, searching for their prey.]
+ 
+
+ 
+[You can attempt to kill or capture her, and both will yield generous rewards.]
+ 
+
+ 
+While all the contestants were asleep, the camera shifted.
+ 
+
+ 
+It landed on a gray concrete floor, where a pair of pure black military boots walked steadily.
+ 
+
+ 
+The footsteps were light.
+ 
+
+ 
+The camera slowly panned up, revealing a section of a fair leg, followed by a woman dressed in tight black gear.
+ 
+
+ 
+She walked outside, and the rising sun broke through the clouds, unveiling the entirety of Ganan City, casting light on her face and outlining her cold, beautiful features—
+ 
+
+ 
+The special guest of "One Life Survivor," Tong Zhao.
+ 
+
+ 
+[Only when you kill, capture, or are killed by her... ]
+ 
+
+ 
+[Will you know the name of this assassin.]
+ 
+
+ 
+[Hiss—]
+ 
+
+ 
+[The temporary change in the map's storyline setup is really exciting! Tong Zhao is so cool QAQ]
+ 
+
+ 
+[Assassin!]
+ 
+
+ 
+[Shall I call out the name of the Assassin?]
+ 
+
+ 
+[The previous Assassin was referring to the killer.]
+ 
+
+ 
+Duan Ge woke up particularly early.
+ 
+
+ 
+Unlike the other guests who slept until the opening CG finished, she had been wandering around for a while.
+ 
+
+ 
+The storyline she received was different due to her "faction," and much shorter than that of the other contestants—
+ 
+
+ 
+[You are an imperial assassin.]
+ 
+
+ 
+[Your mission is to identify the living hidden in this city and eliminate them all.]
+ 
+
+ 
+[This is not a simple task, as you will be facing twenty opponents.]
+ 
+
+ 
+[Your superiors expect you to die on this mission and have not provided you with any weapons or resources; you must provide proof of your kills to exchange for survival resources.]
+ 
+
+ 
+In her mind, a special watch appeared, the kind worn by the other contestants.
+ 
+
+ 
+[You don’t want to die.]
+ 
+
+ 
+[If you want to survive, you must hunt down these twenty survivors.]
+ 
+
+ 
+[Your codename is—]
+ 
+
+ 
+[Hunter.]
+ 
+
+ 
+As the deep, powerful male voice finished the last English syllable, Duan Ge tilted her head back, her dark eyes seemingly locking onto those of the audience watching the live stream. The background noise faded into a whisper, leaving only her cold gaze and vibrant lips.
+ 
+
+ 
+[...If ABO really existed, Tong Zhao would undoubtedly be an Alpha.]
+ 
+
+ 
+[I’m crazy! Too Alpha! I used to think I was straight until I met Tong Zhao.]
+ 
+
+ 
+[Target! Aim! Shoot!]
+ 
+
+ 
+In the large crowd of Tong Zhao's female fans, they excitedly discussed the live stream content, relieved that their sister didn’t adopt the same values as the male viewers; otherwise, they wouldn’t have witnessed her cold and cool side! Of course, the sweet and charming Tong Zhao had once captivated them at first glance, but the Tong Zhao in "One Life Survivor" made the fans want to marry her!
+ 
+
+ 
+They wanted to be taken out by the assassin sister!
+ 
+
+ 
+…
+ 
+
+ 
+The assassin sister wore a displeased expression.
+ 
+
+ 
+She had every reason to be unhappy.
+ 
+
+ 
+Her unscrupulous superior was pushing her toward a deadly mission, which was why she was given such a challenging task.
+ 
+
+ 
+To ensure the show began with excitement, the production team cruelly set Tong Zhao's initial hunger level to thirty, equivalent to waking up after ten hours of sleep and having just one dry piece of bread.
+ 
+
+ 
+Meanwhile, everyone else started with an eighty hunger level.
+ 
+
+ 
+This was to urge her to quickly hunt down the other contestants.
+ 
+
+ 
+Duan Ge found herself on the top floor of a building disguised as a ruin, where she could send signals to headquarters for resource exchanges via a special watch—her base as a hunter and her sleeping place—
+ 
+
+ 
+which was just a simple nylon bed.
+ 
+
+ 
+It was identical to the one in Tong Zhao's consciousness palace, likely a gag by the production team.
+ 
+
+ 
+"So annoying..."
+ 
+
+ 
+Duan Ge clasped her hands and moved her joints.
+ 
+
+ 
+The intelligent AI did not broadcast her inner thoughts, leaving the audience to guess.
+ 
+
+ 
+At the same time, the members of the five teams gradually woke up.
+ 
+
+ 
+After receiving the background setting, their reactions varied. Some first-time participants were overwhelmed by the dire situation and burst into tears while holding onto their teammates.
+ 
+
+ 
+"I want to go home..."
+ 
+
+ 
+"Can we really survive for fifteen days? There’s no food, and we can’t even hide to get through this."
+ 
+
+ 
+A short-haired man, about 1.8 meters tall, cried on his teammate's shoulder.
+ 
+
+ 
+People are easily influenced by the atmosphere; listening to his muffled sobs, the remaining three teammates felt the pressure and couldn’t find comforting words to say, only managing to awkwardly say, "Stop crying, it won’t help."
+ 
+
+ 
+This only made him more distraught.
+ 
+
+ 
+[While it's human nature, given the circumstances, why do I feel like laughing?]
+ 
+
+ 
+[Laughing 1, I hope some narrow-minded elementary students realize that vulnerability isn’t exclusive to women; stereotypes that discriminate against women also oppress men.]
+ 
+
+ 
+[If I were in their shoes, not knowing it’s a variety show, I would definitely be scared...]
+ 
+
+ 
+In the live broadcast, the other four teams had cautiously begun to explore. Everyone recognized the importance of the supply points, and with three supply points to be divided among five teams, conflicts were highly likely. The best strategy was to reach one first and secure the resources.
+ 
+
+ 
+Only the team with the emotionally broken member stood still, each person looking troubled. The contestants only had vague information about the supply points.
+ 
+
+ 
+They didn't know the exact locations of the supplies.
+ 
+
+ 
+For example, Point A was marked as the McDonald's at 280 Qilisi Avenue, but it was a larger McDonald's. Where exactly inside the store were the supplies kept? That would require the contestants to go in and search for themselves.
+ 
+
+ 
+Once found, they had to transport the supplies quickly.
+ 
+
+ 
+Otherwise, they risked being outpaced by others or getting into a conflict that would leave both parties worse off.
+ 
+
+ 
+At this moment, two groups were approaching the McDonald's at Point A, one right after the other.
+ 
+
+ 
+The two teams had about a five-minute time difference.
+ 
+
+ 
+The first team to arrive successfully entered the McDonald's. Upon entering, they immediately noticed that the kitchen was devoid of any food, and even the straws and tissue boxes that were supposed to be available in unlimited quantities were empty. After confirming that the inside was relatively safe, the leader signaled for his teammates to come in—he remained vigilant, indicating that they should pay attention to the other door in case other teams entered, so they wouldn’t get trapped inside and forced into a conflict.
+ 
+
+ 
+As two of them entered the kitchen, one stayed outside to keep watch.
+ 
+
+ 
+“Captain!”
+ 
+
+ 
+He Su excitedly called the captain over when he discovered a box in the storage room, eager to take credit.
+ 
+
+ 
+Since all useful supplies in the store were gone, he instinctively thought he had found a supply pack. Just as the captain came over, delighted, he heard a strange noise: “Wait, there’s something odd inside.”
+ 
+
+ 
+Tick-tock... tick-tock...
+ 
+
+ 
+A faint, strange sound that could only be detected by careful listening.
+ 
+
+ 
+There was a broom by the door, and the captain held the broomstick, slowly prying open the box.
+ 
+
+ 
+At the moment the stick lifted the lid, a spark ignited—
+ 
+
+ 
+Boom!
+ 
+
+ 
+The two of them instinctively fell back, only to be hit by a noxious chemical smell.
+ 
+
+ 
+Fortunately, the explosion's force was minor, and since they had anticipated it, they managed to retreat in time. Aside from being covered in smoke and their hearts racing, they suffered no injuries.
+ 
+
+ 
+But if someone had been right next to the box when it exploded or had opened it barehanded, they might have lost an arm or worse.
+ 
+
+ 
+“If I had just opened the box directly...”
+ 
+
+ 
+The terrifying image flashed through He Su's mind, leaving him shaken.
+ 
+
+ 
+“Every dark corner may hide danger or opportunity,” the captain repeated the words left by their reinforcements.
+ 
+
+ 
+In Ganan City, there were dangers left behind by the enemy, which could be a small “surprise” or an unreasonable landmine.
+ 
+
+ 
+To navigate this city in search of survival, without extraordinary luck, one had to be extremely cautious!
+ 
+
+ 
+“What happened?”
+ 
+
+ 
+The earlier explosion had attracted the attention of other teammates. A young boy, Chen Xiangtai, peeked in and said, “I found a cardboard box under the cash register in the dining area. Captain, come check if it's what we’re looking for!”
+ 
+
+ 
+The captain quickly and concisely briefed Chen Xiangtai on what had just happened and acknowledged his caution: “Well done. We need to move quickly; that explosion was loud, and it’s possible others heard it.”
+ 
+
+ 
+This time, they had successfully found a supply box filled with food and drinking water.
+ 
+
+ 
+Another team would arrive in two minutes.
+ 
+
+ 
+Fortunately, they hadn’t heard any noise from the kitchen.
+ 
+
+ 
+Only a pair of eyes, which had captivated countless souls, stood at a high vantage point observing the activity on the street.
+ 
+
+ 
+“Ah, I see food!”
+ 
+
+ 
+Duan Ge's gaze fell on the second team rushing toward point A.
+# Chapter68
+The once globally popular reality show "One Life Survivor" focused on the conflicts between humans and nature, as well as the tensions among people. To emphasize the former, the filming locations were set on resource-scarce islands (the production team intentionally chose places without easily accessible natural resources). To stimulate the latter, an elimination system was established.
+ 
+
+ 
+Many subsequent survival-themed shows originated from this concept.
+ 
+
+ 
+To enhance viewer engagement, the production team preferred contestants of equal strength rather than a solo act dominating the stage, which is why they invited Tong Zhao to play the role of the hunter—part of the consideration was to "balance the power."
+ 
+
+ 
+While all the other contestants had yet to obtain weapons, the hunter already had a crossbow. If given to a burly man with relevant experience, he might eliminate an entire team by himself. Giving it to a fit female celebrity, however, was seen as more balanced.
+ 
+
+ 
+The entire production team was quite pleased with this arrangement.
+ 
+
+ 
+At that moment, Duan Ge, who had just discovered the whereabouts of the other contestants, was descending.
+ 
+
+ 
+—And she was really going down.
+ 
+
+ 
+Repeated explosions had left many buildings in Ganan City in disrepair, with frequent missing tiles on the east side or gaping holes on the west, and entire ceilings blown away. Duan Ge climbed down the fire escape, the wind tousling her short hair, as she hummed "Hotel California" leisurely.
+ 
+
+ 
+Viewers watching this scene momentarily felt as though they were watching an action blockbuster.
+ 
+
+ 
+She had originally had long hair.
+ 
+
+ 
+However, after pondering for a while, she couldn't figure out why she, as an assassin, had grown long hair in the first place. Even if tied back into a manageable ponytail, it could easily become a noticeable weakness in close combat, where being grabbed by the hair would be quite troublesome.
+ 
+
+ 
+Without hesitation, Duan Ge took a small knife and cut her hair to a neck-length bob.
+ 
+
+ 
+This action left her fans feeling a chill.
+ 
+
+ 
+Soon after, they noticed that Tong Zhao had a small face, and her short hairstyle accentuated her delicate features, making their hearts warm again.
+ 
+
+ 
+Even with a messy haircut, the beautiful sister looked good—especially with her stylish short hair!
+ 
+
+ 
+Assassins never take the main roads.
+ 
+
+ 
+Similarly, Duan Ge preferred not to walk the main path.
+ 
+
+ 
+Her aversion stemmed from her experiences in the apocalypse, where countless eyes lurked in the shadows. Walking the main road was just asking to be ambushed. Thus, viewers watched as she effortlessly navigated between buildings in a straight line, like a wildcat roaming the city, unconcerned with human-made paths—why should a little cat adhere to human social rules?
+ 
+
+ 
+If this segment of Duan Ge’s actions were cut out, it would make a delightful parkour short video.
+ 
+
+ 
+The shortest distance between two points is a straight line.
+ 
+
+ 
+Duan Ge landed on a rooftop, bending slightly before leaping to a lower terrace.
+ 
+
+ 
+From a bird’s-eye view, the height between the buildings looked perilous, a misstep could mean fatal consequences.
+ 
+
+ 
+Traditional viewers were fine, but the immersive experience of holographic viewing had many feeling weak in the knees.
+ 
+
+ 
+Duan Ge’s movements were decisive, showing no hesitation.
+ 
+
+ 
+The camera maintained a distance that was neither too close nor too far, allowing the audience to see her expressionless, cool profile, with only her breathing slightly quickening.
+ 
+
+ 
+A special alert from the production team read: “Dangerous actions, please do not attempt.”
+ 
+
+ 
+[Wow, my legs are shaking!!!]
+ 
+
+ 
+[What’s so impressive about this? I did it all the time before I broke my leg.]
+ 
+
+ 
+[Thinking about it, if she falls, it’s not just a broken leg that’s at stake.]
+ 
+
+ 
+The audience's first reaction was that the official had given her cheat codes.
+ 
+
+ 
+"One Life Survivor" is a relatively credible variety show.
+ 
+
+ 
+Regardless of whether it's the template or the storyline, everything is published on the official website—like in a cop drama, where the lead gets the [shooting] skill, it’s not just a simple line of text saying they’ve acquired it; multiple lines of code must be integrated into the lead's subconscious.
+ 
+
+ 
+Even if a skill is mastered, based on personal style, the lead might not use a gun as their primary weapon.
+ 
+
+ 
+Just like someone who has never used a gun may instinctively grab the nearest item—a folding chair—when confronted with conflict; it’s a matter of thought patterns, it’s subconscious.
+ 
+
+ 
+Astute variety show fans checked the official website and found that there were no related skills assigned to Tong Zhao.
+ 
+
+ 
+This proved that her walking habits were genuine.
+ 
+
+ 
+She doesn’t take the usual path.
+ 
+
+ 
+[So, can some fans chime in? Does your sister in real life also dislike walking properly? /doge]
+ 
+
+ 
+Tong Zhao's fans were just as perplexed.
+ 
+
+ 
+Despite watching countless interviews and keeping up with her on social media, thinking they understood her well...
+ 
+
+ 
+Every time Tong Zhao appeared, there was always something new to discover!
+ 
+
+ 
+[If I had to describe Tong Zhao with a food, I’d say she’s a lasagna.]
+ 
+
+ 
+[You only see the second layer; you think she’s the first layer, but she’s actually on the fifth!]
+ 
+
+ 
+[So hard to see through her!]
+ 
+
+ 
+Climbing the fire escape on the outside of a skyscraper might be bold for a normal person, but she effortlessly slid down the vertical pipes attached to the wall, with no footholds in sight.
+ 
+
+ 
+Duan Ge's parkour route was not just impressive; she significantly shortened the time it took to get from Point A to Point B. In the blink of an eye, she landed in the alley behind the McDonald's kitchen. She approached the door quietly and overheard two teams inside.
+ 
+
+ 
+[Wow x100]
+ 
+
+ 
+[This place looks a bit dilapidated; it probably can't support an adult's weight... Anyway, don’t try this; we don’t know any tricks.]
+ 
+
+ 
+[Maybe they climbed down when no one was watching the pipe.]
+ 
+
+ 
+[That makes sense.]
+ 
+
+ 
+A minute earlier, a member of the Sun Team, on lookout duty, heard the approaching footsteps and immediately interrupted his teammate's excitement over finding supplies, urging them to leave through the second door quickly.
+ 
+
+ 
+The McDonald's had three doors.
+ 
+
+ 
+Two faced the customers and led to the dining area.
+ 
+
+ 
+The last one was in the back kitchen, facing the alley.
+ 
+
+ 
+“Someone's coming!”
+ 
+
+ 
+“Quick, go!”
+ 
+
+ 
+“Damn, someone got here first!”
+ 
+
+ 
+The captain of the later-arriving Cloud Team hesitated for a moment. Although he couldn’t understand what the Sun Team was saying, he sensed their anxiousness from their expressions—this meant they were also afraid of conflict!
+ 
+
+ 
+In this instant, he quickly called his teammates to advance and fight for the supplies.
+ 
+
+ 
+Duan Ge stood at the back door and listened for a moment.
+ 
+
+ 
+The smart AI scanned her thoughts:
+ 
+
+ 
+[Once again, I can’t understand their chatter.]
+ 
+
+ 
+[Hmm, seven guys and one girl.]
+ 
+
+ 
+According to the variety show’s settings, as the "hunter," she also couldn't understand the other contestants' languages. However, she could categorize each voice based on subtle differences, immediately visualizing the specific number and gender of the speakers in her mind.
+ 
+
+ 
+Upon seeing this, the variety show fans became excited, eagerly anticipating a fight with one celebrity taking on eight.
+ 
+
+ 
+However, the next moment, Duan Ge decisively made a choice: “Hmm, there are too many people to take on, I’ll wait a bit.”
+ 
+
+ 
+...?
+ 
+
+ 
+Wait, does your dictionary really have the words "too many to handle"?
+ 
+
+ 
+Perhaps Tong Zhao's earlier unexpected moves had raised the audience's expectations to a Super Saiyan level. Now, seeing her practical mindset made the audience both amused and understanding—yes, she wasn't Superman, nor a berserker charging into the crowd; she was a nimble and perceptive assassin.
+ 
+
+ 
+The production team noticed this change and couldn't help but admire how intuitive Tong Zhao's subconscious was.
+ 
+
+ 
+If she maintained a perfect persona all the time, completing missions would just be satisfactory, not stunning.
+ 
+
+ 
+Unintentionally, she showcased the strategy of building up before revealing strength…
+ 
+
+ 
+Director Chen commented, “Her subconscious really brings a sense of drama, it’s amazing.”
+ 
+
+ 
+In reality, the director was overthinking it.
+ 
+
+ 
+Duan Ge was just a practical person; as long as they could scan her thoughts, they’d realize she was particularly "calculative," skilled at finding the optimal solution in chaotic situations.
+ 
+
+ 
+The Sun Team's hesitation had its reasons. Among the four, there was a female doctor who probably thought she couldn’t take on four big men. Unexpectedly, the female doctor of the Sun Team quickly grabbed a chair and smashed it onto the attackers' knees. The force from their close encounter startled the opponents.
+ 
+
+ 
+Inside the McDonald's, a fierce battle was underway.
+ 
+
+ 
+Duan Ge nodded repeatedly, leaving the audience wondering what she was up to.
+ 
+
+ 
+Is she catching the rhythm now?
+ 
+
+ 
+The AI promptly scanned her thoughts:
+ 
+
+ 
+【A horse stance forward, throw a left hook, then a right hook… quickly use the nunchaku, hum hum ha!】
+ 
+
+ 
+……
+ 
+
+ 
+She was still humming.
+ 
+
+ 
+Due to the reality of not being discovered, she was quietly humming in her mind, still to Jay Chou's "Nunchaku," skipping over the parts she forgot.
+ 
+
+ 
+Having just "woken up" in the variety show, everyone was still getting into the groove. The members of the Cloud Team were startled by the fierce display from the female doctor, and in a moment of distraction, the opposing team managed to escape. Hearing that one side had fled, Duan Ge slipped into the kitchen.
+ 
+
+ 
+At this moment, the entire Cloud Team's attention was focused on the direction the Sun Team had fled, unaware of the pair of eyes watching them from the kitchen.
+ 
+
+ 
+Duan Ge: 【Four of them...】
+ 
+
+ 
+Duan Ge: 【I can probably handle this.】
+ 
+
+ 
+[?????]
+ 
+
+ 
+[I take back what I said about her being a normal person!]
+ 
+
+ 
+[No, what do you mean "probably handle"? Sister Zhao, wait, let’s talk this through!/panic/panic]
+ 
+
+ 
+Duan Ge readied her crossbow:
+ 
+
+ 
+Duan Ge thought clearly: 【My lousy boss only left me two arrows, damn it.】
+ 
+
+ 
+She knew that her ranged weapon was meant to weaken the strongest member of the opposing team, who would be a difficult opponent in close combat—undoubtedly the Cloud Team's captain, a tall man nearly six feet tall with a background in sports.
+ 
+
+ 
+As she readied her crossbow, the audience held their breath.
+ 
+
+ 
+Could she hit her target?
+ 
+
+ 
+Keep in mind, her boss not only left her with just two arrows but also didn't give her any shooting skills.
+ 
+
+ 
+Soon, the answer was revealed!
+ 
+
+ 
+The moment she pulled the trigger, although it didn’t produce a terrifyingly loud bang like a gun, the ensuing gasp confirmed its power—the captain, about to exit McDonald's, howled as he slumped against the wall, collapsing to the ground: “What the fuck? I got hit?!” He touched his wound in disbelief: “An arrow???”
+ 
+
+ 
+In "One Life Survivor," pain perception is significantly reduced.
+ 
+
+ 
+All contestants accepted this setup without feeling it was unusual.
+ 
+
+ 
+However, sustaining multiple injuries would still decrease their mobility.
+ 
+
+ 
+Even if the Cloud Team's captain managed to stand up, he would lose combat effectiveness for a while…
+ 
+
+ 
+The unexpected attack, combined with the leader's injury, threw the remaining three into chaos. Duan Ge knew this was her fleeting advantage; she had to take out all four of them before they could react. She vaulted over the counter, landed on a table, and with a powerful push, jumped onto one of their shoulders, using her thigh to exert force. Within seconds, the first person was knocked out.
+ 
+
+ 
+How to defeat the strong with the weak, to fight solo against many?
+ 
+
+ 
+If Duan Ge were to explain, she would say that combat skill is the most important.
+ 
+
+ 
+Why can a small, frail assailant kill a tall, strong man? It’s about catching them off guard. Most ordinary people are law-abiding citizens who freeze in fear when faced with evil, becoming even weaker when injured, panicking and only knowing to throw wild punches when fighting back.
+ 
+
+ 
+Of course, brawls among ordinary citizens are on the same level.
+ 
+
+ 
+But Duan Ge is not ordinary.
+ 
+
+ 
+Her combat skills have long been ingrained in her bones through countless skirmishes and ambushes.
+ 
+
+ 
+Even her mind sees it as trivial, hardly producing any adrenaline.
+ 
+
+ 
+Ordinary people struggle psychologically before life-and-death fights, hesitating over whether they might kill someone… Predators are always in the minority; humans are social creatures, and killing is undoubtedly an act of alienation, a behavior that exiles one from the community. Duan Ge has long been accustomed to the process of humans turning into beasts, and she doesn’t need to wrestle with that.
+ 
+
+ 
+If you don’t want to kill, then you shouldn’t draw your weapon in the first place.
+ 
+
+ 
+The resolve to put someone to death is the sharpest blade in Duan Ge's hand.
+ 
+
+ 
+If life-and-death combat is akin to treasure hunting in water, ordinary people are like beginner swimmers, while Duan Ge is an amphibian; she can calmly and skillfully dive in and find what she seeks—
+ 
+
+ 
+The enemy’s vital points.
+ 
+
+ 
+The latest episode of "One Life Survivor" features the most popular combat U1, which displays both sides' heart rates, HP values, and fighting spirit levels—when fighting spirit decreases, a person begins to show fear and looks for a chance to escape; when it hits rock bottom, they lose all desire to resist, kneeling down to plead for mercy.
+ 
+
+ 
+And in the live broadcast—
+ 
+
+ 
+Hunter "Tong Zhao"
+ 
+
+ 
+Heart Rate: 140 bpm
+ 
+
+ 
+Fighting Spirit: 80
+ 
+
+ 
+Cloud Team "Shi Sha Tao"
+ 
+
+ 
+Heart Rate: 180 bpm
+ 
+
+ 
+Fighting Spirit: 40
+ 
+
+ 
+[Wait, is Tong Zhao’s heart rate during a light jog? Are these two really engaged in the same fight?]
+ 
+
+ 
+[You see her looking calm, but her fighting spirit is really high.]
+ 
+
+ 
+[How is that determined?]
+ 
+
+ 
+Since this is a newly launched system, the audience doesn't understand the principles behind it.
+ 
+
+ 
+They might not get it, but they certainly understand the scene where the assassin takes down everyone with a cold face:
+ 
+
+ 
+One summary in the comments gets a lot of praise: [Got it, it boils down to four words—steady hands and ruthless.]
+ 
+
+ 
+If Duan Ge couldn’t handle eight people, she would instantly become the target of concentrated fire.
+ 
+
+ 
+Just like some wild animals won’t attack groups of humans, when the numbers drop to a certain point, they will hesitate no longer, pouncing from the shadows to bite the throat of the straggler, taking them down one by one.
+ 
+
+ 
+Everything happened very quickly.
+ 
+
+ 
+Without any cinematic slow motion, Duan Ge's speed had the audience furiously typing question marks.
+ 
+
+ 
+Good movies don’t have dull moments, and her fight scenes left the audience without even a chance to blink; in the blink of an eye, a big man had fallen. The differences in muscle, height, gender, and age seemed irrelevant before this assassin.
+ 
+
+ 
+So fierce that it made the audience's hearts race.
+ 
+
+ 
+Yet she was also very beautiful.
+ 
+
+ 
+The audience's gaze drifted between her expressive eyes, slightly parted red lips, and the contours of her body.
+ 
+
+ 
+Blood splattered onto Duan Ge's cheek.
+ 
+
+ 
+She closed her eyes quickly, avoiding any in her eyes, and raised her hand to wipe her face with the back of her hand.
+ 
+
+ 
+The captain, who had initially been shot and incapacitated, ended up being the last survivor.
+ 
+
+ 
+Cloud Team "Pei Sijie"
+ 
+
+ 
+Heart Rate: 177 bpm
+ 
+
+ 
+Fighting Spirit: 10
+ 
+
+ 
+Director Chen switched to Pei Sijie’s perspective, who was sitting on the ground, looking up at Duan Ge with sheer fear on his face.
+ 
+
+ 
+Duan Ge stepped through a pool of blood and approached him.
+ 
+
+ 
+Her steps were light and graceful, fitting in perfectly even at a gala.
+ 
+
+ 
+Pei Sijie was too scared to speak.
+ 
+
+ 
+The exemption from pain didn’t make him braver; rather, it diminished the courage needed for a desperate fight to the death. He still believed he could survive, as long as the deadly figure in front of him spared his life.
+ 
+
+ 
+Those who rely on their opponents to spare them cannot win.
+ 
+
+ 
+[It’s over, it’s over, it’s over…]
+ 
+
+ 
+The audience could hear his racing heartbeat.
+ 
+
+ 
+Duan Ge, however, had a slight smile, her eyes curving with an expression of delight, as if pleased.
+ 
+
+ 
+She nudged Pei Sijie's thigh with the tip of her boot, causing the wound in his side to reopen and let out a small trickle of blood: “Hey, you can move, right?”
+ 
+
+ 
+Pei Sijie didn’t understand.
+ 
+
+ 
+He covered his wound while begging for mercy and apologizing.
+ 
+
+ 
+“Ah, forgot you can’t understand,”
+ 
+
+ 
+Duan Ge lost interest instantly.
+ 
+
+ 
+[It’s okay, we understand! Zhaozhao, say more QAQ]
+ 
+
+ 
+[Want to hear 1]
+ 
+
+ 
+“My first arrow was a bit off; I didn’t hit your heart, just your lower back,” Duan Ge lifted her foot, pressing the boot against the arrow’s end, slowly and firmly driving it deeper into his abdomen: “You could stand up, but you didn’t. You watched your teammates die and chose to plead with me… From their attitude towards you, you must be a little leader, right?”
+ 
+
+ 
+Duan Ge: [Forget it, it’s boring.]
+ 
+
+ 
+Duan Ge: [All dog bosses in the world are the same.]
+ 
+
+ 
+Duan Ge had good qualities and didn’t take pleasure in torturing her prey; she ignored the heavy undertones of Pei Sijie’s pleading and gave him a swift end. Then, she removed the watches from the wrists of the four and gathered them.
+ 
+
+ 
+After a moment’s thought, she also took any visible jewelry and miscellaneous items from them.
+ 
+
+ 
+Duan Ge actually wanted to strip off their clothes.
+ 
+
+ 
+However, this fell under restricted behavior. Even though she had no inappropriate subjective intentions, the system would still prevent her from such excessive thoughts to protect the contestants' minimum dignity.
+ 
+
+ 
+Duan Ge: [I don’t want to expose my target, which is their watches.]
+ 
+
+ 
+Duan Ge: [Let’s just leave it at this…]
+ 
+
+ 
+Duan Ge: [It would be great if I could blow this place up in one go.]
+ 
+
+ 
+The light fell on the assassin’s face, casting a gentle hue.
+ 
+
+ 
+Only the audience knew that her mind was filled with anything but gentle and merciless thoughts.
+ 
+
+ 
+They had no doubt that as long as she had the materials and conditions allowed, she would indeed blow the entire restaurant to smithereens.
+ 
+
+ 
+The audience felt a bit dazed.
+ 
+
+ 
+[Duan Ge caught four lone ones by herself?]
+ 
+
+ 
+[Oh my, it’s like four soft and crispy players ran into a fully geared assassin and were wiped out in the blink of an eye.]
+ 
+
+ 
+[False dangers: landmines and poison gas; true danger: Duan Ge.]
+ 
+
+ 
+While the audience was dazed, the production team was losing it.
+ 
+
+ 
+Director: “Thick crab…”
+ 
+
+ 
+Assistant Director: “Ward?”
+ 
+
+ 
+In the filming studio, the four innocent and pitiful contestants woke up in the holographic filming chamber. Pei Sijie looked around in confusion and raised his hand to report: “Director, it seems there’s a problem with the filming chamber; I didn’t enter the survival show.”
+ 
+
+ 
+Shi Shatao raised his hand: “Me too.”
+ 
+
+ 
+The other two members of the Cloud Team also raised their hands, eager to give feedback.
+ 
+
+ 
+However, what they received was a subtle gaze of disappointment mixed with pity from the production staff, leaving them puzzled as they glanced at the clock on the wall—sure enough, it wasn’t long before the equipment had indeed malfunctioned!
+ 
+
+ 
+Director Chen waved his hand: “Xiao Wu, go talk to them and find out what happened.”
+ 
+
+ 
+Was there even half an hour since the start?
+ 
+
+ 
+Editing it down, there might only be fifteen minutes of content?
+ 
+
+ 
+… No, we can focus on giving more shots to Tong Zhao to extend the time, making the sacrifice of these four contestants seem less pointless. Director Chen exchanged glances with others, and they all saw the shared pain in each other's eyes.
+ 
+
+ 
+There are twenty contestants, and with Tong Zhao, that makes twenty-one.
+ 
+
+ 
+Starting off by losing four—how are we supposed to film this?
+ 
+
+ 
+And looking at Tong Zhao's subconscious…
+ 
+
+ 
+Fewer than five people are seen by her as easy targets.
+ 
+
+ 
+According to the show's setting, teams cannot communicate or cooperate…
+ 
+
+ 
+To prevent teams from banding together for peaceful coexistence, the production team had unintentionally turned into Tong Zhao's slaughterhouse.
+ 
+
+ 
+“This episode's audience retention rate has hit a new high!” an excited staff member exclaimed.
+ 
+
+ 
+Director Chen shook his head, pointing out the problem: “Don't be shortsighted: the high retention is because Tong Zhao made a big move, raising the audience's expectations significantly—think about it, if you were the audience, wouldn't you be curious about how this survival show can continue after losing one-fifth of its contestants in less than half an hour?”
+ 
+
+ 
+The staff nodded honestly.
+ 
+
+ 
+“That’s exactly it,” Director Chen held his head in despair: “I want to know how to continue filming too!”
+ 
+
+ 
+The worst situation for a survival show is when everyone is ordinary, just waiting to die at the starting point.
+ 
+
+ 
+The second worst is a series of solo acts.
+ 
+
+ 
+The audience would get bored quickly, leading to a severe imbalance.
+ 
+
+ 
+A meticulously prepared survival variety show turning into someone's personal showcase is something the director absolutely does not want.
+ 
+
+ 
+The assistant director suggested, “What if we throw in four more people?”
+ 
+
+ 
+“That would just seem like cheating…”
+ 
+
+ 
+The director shook his head again, pondering: “How about this—let's remove the language barrier between the teams and see if the remaining teams can find a way to work together against the hunter.”
+ 
+
+ 
+Staff member: “Chen, wouldn’t that also be cheating?”
+ 
+
+ 
+Director Chen: “This is just a desperate measure.”
+ 
+
+ 
+After some thought, everyone realized there was no better solution and agreed to change the rules as the director suggested.
+ 
+
+ 
+Thus, the audience in the live stream saw a special effects announcement in the chat—
+ 
+
+ 
+Temporary Announcement
+ 
+
+ 
+“Except for the Cloud Team, the other teams are all citizens of the same country and can communicate freely. [Crying face emoji]”
+ 
+
+ 
+The audience slowly began to flood the chat with question marks.
+ 
+
+ 
+[Don't ask, just know that Tong Zhao is too awesome.]
+ 
+
+ 
+[Can anyone explain what's going on?]
+ 
+
+ 
+[The production team definitely didn’t expect Tong Zhao to be a walking cheat code. They initially had the language barrier for balance but realized they miscalculated and quickly patched it to stabilize the situation; otherwise, they couldn't continue filming.]
+ 
+
+ 
+After a fan explained, even some viewers who usually don’t watch survival shows began to understand.
+ 
+
+ 
+Tong Zhao, a woman who made the production team change the rules!
+ 
+
+ 
+And this woman, upon returning to base, tentatively used a watch to trade for promised resources from her superiors…
+ 
+
+ 
+She received a gun, which contained only one bullet.
+ 
+
+ 
+And three packs of Master Kong instant noodles.
+ 
+
+ 
+The instant noodle packaging had three stickers on it, labeled "Breakfast," "Lunch," and "Dinner."
+ 
+
+ 
+Duan Ge: "..."
+ 
+
+ 
+In that moment, the cold and stylish imperial assassin turned into a worker exploited by her boss.
+# Chapter69
+Angry as she was, she still had to eat.
+ 
+
+ 
+After all, she was too hungry.
+ 
+
+ 
+The imperial assassin could only bow down to instant noodles.
+ 
+
+ 
+Duan Ge ripped open the packaging.
+ 
+
+ 
+When she looked inside and didn't find the seasoning packet, the cold, beautiful face wavered again. Her pale hand crushed the noodle block through the packaging. Watching the unlucky assassin struggle, the audience couldn't help but burst into laughter.
+ 
+
+ 
+["Tong Zhao is just too, too cute!"]
+ 
+
+ 
+["An assassin who's working while eating plain instant noodles without the seasoning packet feels so painfully real… I can't believe I'm feeling the hardship of being an overworked employee in a survival show. After finishing a tough day of overtime and wanting a good meal, but the takeout you ordered turns out awful—it's enough to break your spirit."]
+ 
+
+ 
+["Production team, have a heart! I know you're reading the comments, give my girl a decent meal!"]
+ 
+
+ 
+The third comment was upvoted to high visibility and bolded.
+ 
+
+ 
+But it was no use—the production team knew this would hit the audience’s soft spot.
+ 
+
+ 
+Is a particular contestant especially capable and popular with the viewers?
+ 
+
+ 
+Great! Make things harder for them! The audience will keep complaining but still watch.
+ 
+
+ 
+Since there was no electricity at the ruins and no hot water at the base, Duan Ge bit directly into the crunchy noodles, gnawing them as if she was chewing on the skull of her annoying boss. After finishing the whole block, her hunger level rose to 50, which left her in an awkward spot of "barely not hungry, but definitely not full."
+ 
+
+ 
+With Duan Ge's level of activity, she wouldn't gain weight even on a feast of meat.
+ 
+
+ 
+She needed more calories!
+ 
+
+ 
+Eating three packs of instant noodles a day, and dry at that—if the survivor doesn't die first, she'll want to.
+ 
+
+ 
+Duan Ge jumped twice on the spot to vent her frustration.
+ 
+
+ 
+Her legs were long and straight. Not long ago, she had used those beautiful legs to press against an enemy's carotid artery, causing them to pass out from lack of oxygen. Her whole body was a lethal weapon, but when she wasn't fighting or showing off her skills, the audience found her adorable—
+ 
+
+ 
+["Those two little jumps make her look like a bunny!"]
+ 
+
+ 
+A cold comment from a passerby: ["That bunny could kick your head clean off."]
+ 
+
+ 
+["Stop, I can picture it now."]
+ 
+
+ 
+Duan Ge pursed her lips, realizing they were a bit dry.
+ 
+
+ 
+Dry noodles are dry enough, but with no water in her supplies, it was practically the definition of "extra dry." Thinking about it carefully, how could there be no water in the supplies—weren't they deliberately making things difficult? Clean drinking water is a critical survival resource.
+ 
+
+ 
+As for the survivors in the city, Duan Ge knew little: there were twenty people in total, but the gender and age ratio was unclear. Judging from the recent conflict between two teams, it seemed the survivors weren't in the United States, which worked to her advantage.
+ 
+
+ 
+Duan Ge: "If none of them are alone, even I'd find it troublesome."
+ 
+
+ 
+["Now that's more like an assassin."]
+ 
+
+ 
+["As long as I kill all the witnesses, it's a successful stealth mission!"]
+ 
+
+ 
+The audience nodded in agreement.
+ 
+
+ 
+Duan Ge: "But there are advantages to groups gathering, too."
+ 
+
+ 
+Duan Ge: "I'll need to find a way to get some explosives, just in case..."
+ 
+
+ 
+Duan Ge: "Sigh, that kind of stuff should've been prepared by my boss. I'm not really good at handling that."
+ 
+
+ 
+["Huh?"]
+ 
+
+ 
+["Okay, explosions are art. Anything can be assassin gear!"]
+ 
+
+ 
+["Traditional assassin equipment: black clothes and a grappling hook; modern assassin equipment: explosives."]
+ 
+
+ 
+In the variety show, the “annoying boss,” who in reality was the production team, subtly added a special effects subtitle: “If we prepare anything more for you, the show would end in a day,” accompanied by a trembling, cartoonish dog emoji. It was a precise attempt to be cute without being annoying, turning their rule-changing "desperate move" into something more palatable. After all, everyone knew Tong Zhao wasn’t in it for the prize money; the production team clearly wanted the show to be entertaining. Making small rule adjustments was understandable.
+ 
+
+ 
+The audience was thoroughly amused.
+ 
+
+ 
+Where was the supposed apocalyptic atmosphere?
+ 
+
+ 
+Where was the brutal combat in the ruins?
+ 
+
+ 
+Even though they understood, they were still eagerly waiting for Tong Zhao to dominate her opponents!
+ 
+
+ 
+This series of cheeky maneuvers indirectly proved that Tong Zhao wasn’t colluding with the production team. But, if there was any shady business going on, it wasn’t about favoring Tong Zhao. Instead, it seemed more like the opposite—making things harder for her.
+ 
+
+ 
+...
+ 
+
+ 
+Duan Ge casually stuffed the remaining unredeemed watches under her pillow.
+ 
+
+ 
+Wasn’t she redeeming them all to see if there might be other useful items?
+ 
+
+ 
+Just as the audience began to wonder, the AI revealed her inner thoughts and cleared up the confusion:
+ 
+
+ 
+Duan Ge: “I’m saving up for a ten-pull before redeeming.”
+ 
+
+ 
+["Ten-pull, hahaha!"]
+ 
+
+ 
+["Come on, production team, at least guarantee an SR self-heating hotpot with the ten-pull!"]
+ 
+
+ 
+["Look at how they’ve pushed the imperial assassin!"]
+ 
+
+ 
+Director Chen didn’t expect Tong Zhao’s subconscious to take her acting skills to a new level—she was like a walking meme machine. He quickly instructed the effects team to create a prize wheel, which would be used the next time Tong Zhao came to redeem her items. They also came up with a small event: the top ten viewers on the gift leaderboard, all wearing Tong Zhao fan badges, would participate in a prize draw. Whatever the fan won, Tong Zhao would receive in the survival show.
+ 
+
+ 
+If those ten fans were willing, they could even fill out their address in the background, and the production team would send them a real-life version of the item their idol received.
+ 
+
+ 
+If the fan was super lucky, their idol might just end up with a self-heating hotpot, freshly coded by the modeling team working overtime!
+ 
+
+ 
+If the fan drawing the prize for their idol has bad luck, well, sorry—your idol will just have to keep eating instant noodles without a seasoning packet...
+ 
+
+ 
+Tong Zhao's fan clubs, a few unofficial support groups, immediately got anxious, determined to make sure she got a decent meal. Five members in the top ten leaderboard were wealthy patrons from her fan club. These rich fans certainly had money, but since they usually just spent directly on mobile games, they had no idea if they were lucky or not. So, they started asking other fans with better luck to draw for them in the support group.
+ 
+
+ 
+In real life, the “lucky” and “unlucky” fans were teaming up to ensure Zhao Zhao could finally enjoy a hotpot feast.
+ 
+
+ 
+In the variety show world, the Sun Squad returned to their "spawn point"—a partially destroyed house with half the ceiling blown off, but with three intact walls and a secure front door, which seemed safe enough. They opened a box to check their supplies.
+ 
+
+ 
+At the bottom were 24 bottles of 500ml mineral water, stacked neatly. On top of that were various canned foods, and finally, there was a layer of tightly packed, individually wrapped small bread rolls, which bounced out like little white rabbits as soon as the box was opened. Rice was hard to come by, but the bread could be dipped in the canned food—quite a thoughtful arrangement.
+ 
+
+ 
+[...]
+ 
+
+ 
+["I'm losing it here... Won't Tong Zhao just break down if she sees this?"]
+ 
+
+ 
+["The production team has no chill, hahaha!"]
+ 
+
+ 
+The team captain pondered for a moment and said, "Everyone's tired. Let’s each have a bread roll, and two people can share a can. Let’s eat something first."
+ 
+
+ 
+He Su chose a can of luncheon meat and shared it with the female doctor.
+ 
+
+ 
+He tore open the bread roll and stuffed some luncheon meat inside.
+ 
+
+ 
+The cold, unheated meat was a bit greasy, but He Su was so hungry that even the grease soaking into the bread became delicious. The four of them silently finished their portions of bread. He Su couldn’t hold back and muttered quietly, “Is this all we get to eat? How are we supposed to last fifteen days? Preparing something better wouldn’t cost much.”
+ 
+
+ 
+The female doctor patted him on the shoulder and said, “Be grateful we have anything to eat.”
+ 
+
+ 
+He Su, still frustrated, added, “It’s hard to accept that the enemy’s lackeys are feasting while we’re stuck gnawing on bread and cold canned food.”
+ 
+
+ 
+Due to the storyline’s faction setup, He Su’s reference to the “enemy’s lackeys” was a direct jab at Tong Zhao.
+ 
+
+ 
+["The ‘enemy lackey’ is over there gnawing on plain instant noodles, so let’s not bring her into this."]
+ 
+
+ 
+["Good thing Tong Zhao doesn’t speak their language, or would she be furious hearing this?"]
+ 
+
+ 
+["Now I want to see an angry bunny!"]
+ 
+
+ 
+It’s unclear who started it, but somehow, Tong Zhao had been nicknamed "bunny" by the audience.
+ 
+
+ 
+There was no hidden food stash in the house—no safe, no basement. After some discussion, the Sun Squad decided to hide half of their supplies deep under the bed and cover them with miscellaneous items. Canaan City was a tiny, remote place, and the chances of running into one of the twenty survivors were slim, let alone having their base discovered. The captain reasoned, “From the outside, this place looks like any other abandoned house. The chances of someone coming in while we’re out and doing a full search are very low. Don’t worry about things that haven’t happened. What are we going to do, stash our food in a bank?”
+ 
+
+ 
+The banks in Canaan City had been bombed into ruins. Cash was now as worthless as scrap paper, even less valuable than toilet paper.
+ 
+
+ 
+At least toilet paper could be used to wipe your face.
+ 
+
+ 
+After the captain finished, the group found his reasoning sound and stopped worrying.
+ 
+
+ 
+The conversation then shifted to the conflict that had occurred while searching for supplies.
+ 
+
+ 
+He Su said, “Sister Tan was so cool—she threw a chair and scared them all off. They didn’t even bother chasing us afterward.”
+ 
+
+ 
+Sister Tan was the female doctor on their team.
+ 
+
+ 
+Actually, she had decent stamina. After all, being a doctor requires endurance—without it, one could collapse during surgery. When the young, enthusiastic teammate praised her, she didn’t feel much emotion, but instead voiced her suspicion: “...I noticed that after they recovered and wanted to chase us, we weren’t running very fast. But after a while, there was no noise at all. It’s a bit strange.”
+ 
+
+ 
+At the time, they had been so scared, adrenaline was pumping through them. They bolted out the door and ran as fast as they could, avoiding retracing their steps to avoid being followed. Instead, they took several detours before finally returning to their “spawn point,” the residential area in Julong District.
+ 
+
+ 
+Thinking back now...
+ 
+
+ 
+The captain said, “Yeah, after we reached the end of the street, we couldn’t hear anything anymore.”
+ 
+
+ 
+Although he could run much faster, he held back, struggling with himself but ultimately slowing down to stay at the back of the team to protect those who were slower: “From what I remember, as soon as we left the store, they didn’t chase us. I even heard a strange scream.”
+ 
+
+ 
+That was the Cloud Team’s captain howling like a wounded pig after being shot with an arrow.
+ 
+
+ 
+Sister Tan added, “I heard that too.”
+ 
+
+ 
+He Su disagreed, “It sounded more like a roar to me.”
+ 
+
+ 
+A roar could make sense too, as a way to boost morale.
+ 
+
+ 
+One of the team members quietly suggested, “Should we... go back and take a look?”
+ 
+
+ 
+The captain shook his head, fearing an ambush.
+ 
+
+ 
+His reasoning was clear: since they had already secured food, it was better to stay holed up until their supplies ran low before taking another risk. “Why look for trouble when you don’t have to? Surviving these fifteen days is the real goal of this game. If we must take a risk, I’ll be the one to go.”
+ 
+
+ 
+He patted a teammate on the head. “Don’t overthink it. We don’t know when the enemy might release poison gas. Keep an eye on the alerts on your watch.”
+ 
+
+ 
+The poison gas was released at random intervals.
+ 
+
+ 
+However, thirty minutes before the gas was released, the watch would display a map of Canaan City along with an official warning, giving any players in the affected area time to escape.
+ 
+
+ 
+“If we have to take risks, we might as well check out the other two supply points,” He Su suggested.
+ 
+
+ 
+So, what were the conditions at the other two supply points?
+ 
+
+ 
+The Thunder Team had exceptional luck. When they arrived at their supply point, they didn’t run into any other teams and successfully gathered food supplies and a small amount of basic medical supplies from a hospital.
+ 
+
+ 
+The Star Team and Moon Team evenly split the supplies at an elementary school supply point.
+ 
+
+ 
+Although they only got half of what was available, they came away without any injuries.
+ 
+
+ 
+From the audience's omniscient perspective, not running into Tong Zhao was a huge stroke of luck.
+ 
+
+ 
+This turn of events surprised both the audience and the production team.
+ 
+
+ 
+How did they manage to negotiate without speaking the same language?
+ 
+
+ 
+AI-scanned thoughts revealed the answer—
+ 
+
+ 
+Star Team Captain: "Damn, the other side looks strong. We wouldn’t have the advantage in a fight."
+ 
+
+ 
+Moon Team Captain: "Those muscles must’ve come from eating protein powder. If I took a punch, even if I didn’t die, I’d definitely get a concussion."
+ 
+
+ 
+After weighing the pros and cons, both sides tentatively used gestures to express minimal friendliness. They then divided the resources equally and backed away slowly while keeping each other in view. They only turned around and left once they had reached a safe distance, ensuring there was no opportunity for a sudden betrayal.
+ 
+
+ 
+When every potential human treachery was taken into account, the outcome turned out to be peaceful and civilized.
+ 
+
+ 
+The production team was quite pleased with this development.
+ 
+
+ 
+“Not bad, starting to feel like a proper survival show.”
+ 
+
+ 
+Director Chen finally felt a bit of relief. “This feels right.”
+ 
+
+ 
+As the show seemed to be getting on the right track, the staff could relax slightly. As for the contestant who had been eliminated early, well, they just chalked it up to bad luck!
+ 
+
+ 
+“By the way, what’s Tong Zhao doing?”
+ 
+
+ 
+Just as the words fell, the director switched the main screen to focus on the exploited imperial assassin, Duan Ge.
+ 
+
+ 
+After the other contestants had found supplies, they followed human instinct and hid indoors, where they felt safe. Meanwhile, Duan Ge, who was still hungry and thirsty, managed to find the last two bottles of mineral water on a nearby supermarket shelf.
+ 
+
+ 
+That's right—there were still a few remaining resources in Jinan City.
+ 
+
+ 
+However, they were hard to find, requiring contestants to take the risk of running into other teams or being caught by the assassin while out searching.
+ 
+
+ 
+How did Duan Ge just happen to find them in the nearby supermarket?
+ 
+
+ 
+Was this a moral awakening or the production team growing a conscience?
+ 
+
+ 
+No, it was neither.
+ 
+
+ 
+It was because AI had scanned that Duan Ge, who was suffering from thirst and on the verge of losing her temper, had decided to return to the McDonald's nearby, intending to cut open the bodies while they were still fresh to drink blood...
+ 
+
+ 
+To avoid airing such a graphic scene, Director Chen had hastily added two sets of mineral water into her path, hoping to calm her down.
+ 
+
+ 
+The two bottles of water somewhat appeased Duan Ge.
+ 
+
+ 
+She then found a high vantage point to overlook the city.
+ 
+
+ 
+While contestants had supply points, hunters like Duan Ge also had special privileges. Her privilege was being able to choose the gas drop location an hour before the toxic gas was released. The range and timing of the gas drop were decided by the production team, but the exact location within Jinan City was up to her.
+ 
+
+ 
+Duan Ge took only ten minutes to finalize her plan.
+ 
+
+ 
+It wasn’t difficult.
+ 
+
+ 
+She would wait near the edge of the gas, waiting for the right target to appear. It was like fishing on the edge of the shrinking zone in PUBG—wait, and you'll catch someone. As the safe area shrank, even if she was unlucky, she had mapped out three main routes on the map. All she had to do was watch from her high perch.
+ 
+
+ 
+"They didn't even give me a military-grade binocular…”
+ 
+
+ 
+Duan Ge muttered quietly in complaint.
+ 
+
+ 
+Those escapees were way too poor—none of them had any useful resources on them.
+ 
+
+ 
+[Our girl is the poorest assassin in history!]
+ 
+
+ 
+[The production team has no heart.]
+ 
+
+ 
+[No, think about it—if they actually gave her a full assassin's kit, the other teams would probably already be wiped out. This show could go straight to casting for the next season = =]
+ 
+
+ 
+The audience laughed while agreeing this made sense.
+ 
+
+ 
+While Duan Ge in the show struggled with her lack of resources, outside the show, a video of Tong Zhao single-handedly taking down four people was edited by devoted fans and uploaded to Weibo. Her agent, Sister Chu, had been keeping a close eye on things and wasn’t about to miss such a golden opportunity for promotion. She quickly paid for big influencers and some PR pieces to boost the video.
+ 
+
+ 
+@VarietyShowReviewsV:
+ 
+
+ 
+I have to share this hidden gem of a variety show, “One Life Survivor”! Less than 15 minutes into the episode, and four contestants are already eliminated. Can you guess who the killer is?
+ 
+
+ 
+[Video]
+ 
+
+ 
+This post hit the target audience perfectly.
+ 
+
+ 
+Since the fight scene was so short, the video posted by the marketing account was a combination of two clips: the original and a slow-motion version. In slow motion, you could clearly see how Tong Zhao had taken down four opponents in such a short time. Some people who hadn’t been following the entertainment industry but remembered liking Tong Zhao’s previous work were immediately intrigued:
+ 
+
+ 
+[Whoa? Is this a variety show? This clip gives off serious Feng Yanqi vibes.]
+ 
+
+ 
+[Mind blown!!! So cool!!!!]
+ 
+
+ 
+[Oh please, is this supposed to be impressive? If Tong Zhao fought me, she’d be begging me not to die within five seconds*.]
+ 
+
+ 
+[The person above... your mom's dumplings are really delicious.]
+ 
+
+ 
+The scene of Tong Zhao taking on four opponents was incredibly entertaining, something rare in Chinese entertainment—at least in variety shows. Once people explained the context behind it in the top comments, the post got even more traction and was shared widely.
+ 
+
+ 
+Her agent, Sister Chu, monitored the data feedback and nodded in satisfaction.
+ 
+
+ 
+The money spent had brought back substantial returns, which made perfect sense.
+ 
+
+ 
+Great content + a well-managed entertainment company = success.
+ 
+
+ 
+Everything had progressed logically up to this point.
+ 
+
+ 
+However, just as the agent closed the chat to attend to another artist's matters, the assistant she had been in contact with suddenly started messaging frantically again.
+ 
+
+ 
+What now?
+ 
+
+ 
+Sister Chu, puzzled, opened the chat:
+ 
+
+ 
+[Something big happened!!!]
+ 
+
+ 
+[Because the fans allowed reposts, that clip got shared on international platforms. A lot of people from overseas are asking who this girl is and whether this is the legendary Chinese martial arts! (Twitter screenshot) The response is huge, even the National Martial Arts Institute posted a Weibo about it… (Weibo screenshot)]
+ 
+
+ 
+Just seeing the number of shares on those two screenshots made the agent snap to attention.
+ 
+
+ 
+This was basically an example of something becoming a hit abroad and then being re-imported to the domestic market.
+ 
+
+ 
+In the West, there's often a preference for Japanese culture when it comes to Asian content—things like “Dragon Ball” are right up their alley.
+ 
+
+ 
+China's primary cultural export is martial arts, which remains popular worldwide, thanks to iconic stars like Bruce Lee and Jackie Chan, who opened the door for international audiences and left a lasting impression.
+ 
+
+ 
+Chinese fight scenes are incredibly captivating!
+ 
+
+ 
+Even as traditional cinema fades and action blockbusters dominate, martial arts choreography continues to thrive, with Chinese martial arts films remaining in high demand.
+ 
+
+ 
+However, the video of Tong Zhao circulating on international platforms is something different.
+ 
+
+ 
+This wasn’t from a movie?
+ 
+
+ 
+It was from reality TV?
+ 
+
+ 
+Was there an action choreographer involved?
+ 
+
+ 
+The person who reposted it kindly answered the curious netizens—no, there was no action choreography; it’s a survival-themed reality show, and the girl’s name is Tong Zhao, a Chinese celebrity!
+ 
+
+ 
+The hashtag “#TheGirlWhoFoughtFourOnRealityTV” started gaining moderate attention across North American and European networks. Although Tong Zhao's fighting skills weren’t traditional martial arts—just something she’d honed through rough survival training—it didn’t matter. Her incredibly beautiful East Asian face in front of the camera, combined with the fact that she was Chinese, sealed the deal.
+ 
+
+ 
+No problem! It was ‘definitely’ Chinese kung fu!
+ 
+
+ 
+Most foreign comments humorously agreed that Chinese kung fu is real.
+ 
+
+ 
+Childhood dreams weren’t shattered, and they joked that it would be perfect if a panda appeared as well.
+ 
+
+ 
+Chinese students abroad reacted, “Damn, there’s no way we can explain this to foreigners anymore.”
+ 
+
+ 
+But despite the confusion, everyone was pretty happy.
+ 
+
+ 
+After all, people from every country share a common trait: they love hearing foreigners praise their own people.
+ 
+
+ 
+Since it was vaguely related to martial arts, the National Martial Arts Institute jumped on the bandwagon, re-importing the clip to Chinese social media by posting a screenshot from Twitter.
+ 
+
+ 
+@NationalMartialArtsInstituteV:
+ 
+
+ 
+New-style Chinese Kung Fu! /Laugh and cry/Laugh and cry
+ 
+
+ 
+Miss Tong, are you interested in joining our institute?
+ 
+
+ 
+This National Martial Arts Institute isn’t like the many fake institutions that use the guise of traditional culture to scam students. Whether in the era of traditional films or the era of instinctive action movies, the top martial arts choreographers and action designers all come from this institute’s masters and students. It is well-known in the film industry, and in recent years, more than 80% of martial arts stars have either graduated from or trained at this institute.
+ 
+
+ 
+Their official social media account is not managed by any PR team. In fact, it’s run by the old headmaster himself, who, after learning how to type with one finger, personally posts updates.
+ 
+
+ 
+This was basically the grandmaster speaking.
+ 
+
+ 
+In the martial arts community, the concept of master and disciple is significant, so naturally:
+ 
+
+ 
+- "Are we getting a new junior sister?"
+ 
+- "I really want a junior sister!"
+ 
+- "I just happen to need a female lead for my new film."
+ 
+
+ 
+At first glance, these replies seemed like ordinary fan comments...
+ 
+
+ 
+But upon closer inspection, they were all verified gold accounts, and all belonged to famous actors, action designers, and directors in the martial arts film industry. Any one of them could provide invaluable resources to newcomers aspiring to enter the world of action films.
+ 
+
+ 
+For Tong Zhao, this wasn’t particularly enticing since she was already in a position where she could choose roles at will.
+ 
+
+ 
+The problem was the surge in popularity that followed, propelling this short video to the number one spot on trending topics.
+ 
+
+ 
+#JuniorSisterTongZhao#
+ 
+
+ 
+Manager Chu scrolled through the replies, overwhelmed by the buzz.
+ 
+
+ 
+Especially the top comment—director Shi Dingjun, who said he was looking for a female lead for his new film…
+ 
+
+ 
+This famous director had just won an international award with his last movie.
+ 
+
+ 
+Unlike commercial directors like Shi Qianqiu, who made money from passion projects, Shi Dingjun pursued artistic excellence, particularly in the realm of Chinese martial arts films.
+ 
+
+ 
+Now, Tong Zhao had piqued his interest?
+ 
+
+ 
+Her peers were stunned—who knew that participating in a survival reality show could yield such results!?
+# Chapter70
+The favor from both the National Martial Arts Academy and Shi Dingjun was like two giant windfalls landing on manager Sister Chu's head. When someone's luck picks up, there's really no stopping it.
+ 
+
+ 
+Sister Chu was so pleased that she couldn't contain her smile. She wanted to immediately pull Tong Zhao out of Jinan City and discuss these opportunities with her. Of course, that wasn't possible, so she could only send her a WeChat message. She was sure Tong Zhao would contact her once she emerged from the holographic filming pod.
+ 
+
+ 
+With other artists, things might be uncertain, but Tong Zhao always put her at ease.
+ 
+
+ 
+...
+ 
+
+ 
+At the same time, within the “One Life Survivor” variety show.
+ 
+
+ 
+In Jinan City, the captain of the Sun Team, while searching for possible resources in the city, ran into two members of the Thunder Team at a Walmart. As both sides hesitated, unsure whether to part peacefully or start a fight, the Sun Team captain blurted out, “What the hell?” breaking the tension.
+ 
+
+ 
+The Thunder Team realized they could communicate!
+ 
+
+ 
+When there's a common language, things become less frightening.
+ 
+
+ 
+After some long-distance discussion, the two teams reached an agreement.
+ 
+
+ 
+What convinced the Sun Team captain, Kong Yeming, was a single statement: “Think about it. Who said we have to be enemies? Why do we have to fight the moment we meet? Our common enemy should be the military, the assassins sent to eliminate us. We should join forces, survive these remaining fourteen days, and wait for the rescue team to pick us up.”
+ 
+
+ 
+To show sincerity, the Thunder Team captain handed his weapon (a stick) to his teammate, then walked over to the Sun Team captain with empty hands, extending his right hand.
+ 
+
+ 
+Kong Yeming hesitated for a moment but eventually shook the hand that symbolized cooperation.
+ 
+
+ 
+Once the decision was made and physical contact occurred, the atmosphere became noticeably more relaxed.
+ 
+
+ 
+The Thunder Team captain invited him to join in the search for supplies, and Kong agreed. As he moved to stand between the two Thunder Team members, he finally got a clear look at the "weapon" that had been handed to the teammate earlier—an old, worn-out baguette.
+ 
+
+ 
+Kong Yeming: "This?"
+ 
+
+ 
+The Thunder Team captain gave a wry smile. "Couldn't find anything better for defense, so we’re making do with this. It's too hard to eat anyway; I can’t even bite into it."
+ 
+
+ 
+To emphasize his point, he picked up the baguette and struck a nearby metal shelf twice. The force of the impact made a loud banging sound, causing the metal shelf to shake slightly, while the baguette remained completely intact. It was easy to imagine the damage it might cause if swung at someone’s head by an adult man... well, maybe not really.
+ 
+
+ 
+[What? A baguette? Is the show serious?]
+ 
+
+ 
+[Russian black bread could at least put up a fight!]
+ 
+
+ 
+[Lol, such an insult to the French!]
+ 
+
+ 
+At that moment, the special effects team added a glowing blue outline around the baguette, accompanied by mechanical sound effects, and a pop-up window displayed its item stats:
+ 
+
+ 
+[Name]: A baguette forgotten by customers, staff, and chefs alike.
+ 
+[Expiration date]: One year ago.
+ 
+[Note]: As food, it’s a failed, expired product.
+ 
+As a weapon, it’s an unmatched heavy sword with no edge.
+ 
+
+ 
+The item description was clearly a joke.
+ 
+
+ 
+Kong Yeming was skeptical, but the Thunder Team members actively shared their findings during their search for supplies— a small amount of medical supplies and food, as a gesture of goodwill. Kong understood that this was an act of kindness and trust, meant to prevent him from having any thoughts of greed or theft, and said, “It just so happens that we have a doctor in our team. If you have any injured members, he might be able to help.”
+ 
+
+ 
+The Thunder Team was delighted.
+ 
+
+ 
+Although none of them were injured at the moment, having a medical professional was certainly valuable.
+ 
+
+ 
+Kong Yeming continued, “You guys are lucky you didn’t run into anyone else. We went to a McDonald's, and we almost got into a fight there…”
+ 
+
+ 
+He recounted what had happened that day and then expressed a concern he hadn’t mentioned to his teammates before: “I’m pretty sure that once we ran out of McDonald’s, they didn’t follow us. That doesn’t make sense; after all, we’re not fast runners, and they were willing to use force to fight over food. Would they really be the type to give up just because we left the restaurant? We didn’t run far. I wanted to go back and take a look, but I felt it wasn’t worth the risk.”
+ 
+
+ 
+“I think we should go back and check it out.”
+ 
+
+ 
+The Thunder Team captain confirmed Kong’s concern: “If they’re in danger, it’s something we’ll need to face together.”
+ 
+
+ 
+[That’s right, if your team runs into Tong Zhao, you’ll get wiped out.]
+ 
+
+ 
+[If the two teams cooperate, Tong Zhao will be in danger; the remaining Moon and Star teams should also be able to unite. They managed to split supplies even when they couldn't communicate, so it should be easier now that they can.]
+ 
+
+ 
+[Everyone targeting Zhao Zhao, and she can only eat instant noodles without seasoning packets.]
+ 
+
+ 
+The two teams agreed to meet at that McDonald's the next morning at eight o'clock, after which they would search for supplies together.
+ 
+
+ 
+With eight people working together, safety would be increased.
+ 
+
+ 
+When Kong Yeming returned to the gathering place and spoke to his teammates, the members of the Sun Team, with the exception of Tan Jie, were usually indecisive and always followed his lead, so there were no objections this time.
+ 
+
+ 
+The next morning at eight o'clock.
+ 
+
+ 
+On the empty street, the two groups met right on time at the corner across from McDonald's. He Su from the Sun Team took the initiative to chat and lighten the mood as they crossed the street together. After all, the two teams had never had any conflicts, and under He Su's cheerful laughter, the atmosphere felt as relaxed as a high school field trip.
+ 
+
+ 
+However, just ten meters from the entrance of McDonald's…
+ 
+
+ 
+A wave of putrid stench surged into their nostrils, leaving everyone in shock.
+ 
+
+ 
+What was that smell?
+ 
+
+ 
+The team's mood-lifter, He Su, couldn't help but turn away and cover his mouth, gagging, while Sister Tan also changed her expression.
+ 
+
+ 
+She knew what was causing the smell.
+ 
+
+ 
+[Warning ahead! Protect yourselves!]
+ 
+
+ 
+[Bros who are scared, put up your shields on the screen.]
+ 
+
+ 
+[What’s there to be afraid of? Those corpses are just code; the real ones have probably woken up and are watching the livestream!]
+ 
+
+ 
+The third comment was on point.
+ 
+
+ 
+The entire Cloud Team, which had been wiped out, theoretically could be reintroduced into the reality show because their contract hadn’t expired yet. Director Chen hadn’t decided if there would be any opportunities for them to be useful again, so they were kept around to do odd jobs in the studio. Naturally, they would see the live broadcast on screen.
+ 
+
+ 
+The Cloud Team looked at the close-up of their own corpses with complex feelings.
+ 
+
+ 
+The broadcast version was heavily edited (adult viewers could pay to purchase an unedited version), while what they were watching backstage was the high-definition, unedited version.
+ 
+
+ 
+The stage manager said, “Oh man, you’re in bad shape.”
+ 
+
+ 
+The Cloud Team captain responded nonchalantly, “No, not really; it’s just a bit decayed.”
+ 
+
+ 
+Member A asked, “Are there maggots on my face...? Wait, why are you filming me?”
+ 
+
+ 
+Member A turned to look at a guy holding a camera filming him. The guy said he thought their conversation was quite interesting and figured that since Member A probably wouldn’t get any screen time on the show, he might as well show his face in the behind-the-scenes footage. Member A thought this was fair and encouraged the guy to film more.
+ 
+
+ 
+The Thunder Team also had unpleasant expressions, hesitating.
+ 
+
+ 
+Kong Yeming took a deep breath and showed the leadership expected of a captain: “I’ll go in and take a look first.”
+ 
+
+ 
+No one objected.
+ 
+
+ 
+He stepped inside, and through the glass door, he could already see a horrific scene.
+ 
+
+ 
+Kong Yeming furrowed his brow and opened the door; the stench intensified, making his eyes water.
+ 
+
+ 
+After all, it was an enclosed space with poor air circulation, and things were decaying rapidly, creating a strong odor.
+ 
+
+ 
+A comment quietly floated by: [Fermentation is on point...]
+ 
+
+ 
+[To the one who said “fermentation on point,” what kind of devil are you? I’ll gag in respect.]
+ 
+
+ 
+[Is the little girl chasing after Tong Zhao scared off by the survival show's standards?]
+ 
+
+ 
+There were definitely points that could provoke a debate. Goodness.
+ 
+
+ 
+The girls were already a bit intimidated; who wouldn’t be? Even some of the guys were afraid of corpses, but now with the provocations, Tong Zhao's fans couldn’t sit still and began to retaliate: [What’s there to be scared of? This is an artwork made by my sister; we’re lucky to be able to appreciate it!]
+ 
+
+ 
+[Exactly! With a filter, it’s just like other female stars posting pictures of their handmade cookies on Weibo.]
+ 
+
+ 
+The love from these fangirls was incredibly strong!
+ 
+
+ 
+Some particularly proactive fans even took screenshots of the blurred corpses, added a dreamy pink filter, and included them in Tong Zhao's collection of highlighted works. They used their actions to prove that the stereotype of women being timid was outdated. What’s there to be afraid of? They loved Tong Zhao, who even created the corpses, so what were a few more corpses to them?
+ 
+
+ 
+Fangirls were not afraid of corpses.
+ 
+
+ 
+The two teams in the variety show were genuinely scared.
+ 
+
+ 
+Even someone like Sister Tan, a healthcare professional who was used to seeing cadavers during her studies, felt her grip tighten and chills run down her back when she thought about the presence behind the “creation” of these corpses.
+ 
+
+ 
+Kong Yeming pinched his nose to reduce his breathing and crouched down to examine the state of the bodies.
+ 
+
+ 
+He Su, who had finally managed to suppress his gag reflex, said, “Ugh, Captain, what’s so interesting about this?!”
+ 
+
+ 
+The captain ignored him.
+ 
+
+ 
+After a while, he signaled his teammates to follow him out onto the street, returning to the embrace of fresh air. He took several deep breaths to expel the faint stench of decay and said, “The fatal wound is in the throat; there are no other obvious external injuries. They were all killed by having their throats cut.”
+ 
+
+ 
+The members of the Lightning Team looked at him with newfound respect. “Are you a forensic doctor?”
+ 
+
+ 
+“No, just a loyal “CSI viewer.”
+ 
+
+ 
+“…”
+ 
+
+ 
+Alright then.
+ 
+
+ 
+Kong Yeming cleared his throat and analyzed the situation: “In other words, when we had the conflict with them, there was a third party in McDonald’s that I didn’t notice. They must have attacked them after we left the store.”
+ 
+
+ 
+“The wounds are clean; the attackers were human.”
+ 
+
+ 
+The captain of the Lightning Team nodded thoughtfully.
+ 
+
+ 
+“The supplies are in my hands. If it were another team, they should be consistently pursuing us. Clearly, the ones who attacked them must be the enemy’s lackeys.”
+ 
+
+ 
+Kong Yeming’s analysis received high praise from the audience in the live stream.
+ 
+
+ 
+So far, everything he said was correct, and he had even guessed the identity of the murderer.
+ 
+
+ 
+[Not bad, Mr. Kong, lucky and smart; you might just survive to the end.]
+ 
+
+ 
+[I feel like the Lightning Team wants to side with him now.]
+ 
+
+ 
+“I believe that the intelligence about the reinforcements was wrong, or the enemy has changed their mind,” Kong Yeming continued.
+ 
+
+ 
+Kong Yeming's tone shifted, becoming grave: “The enemy’s lackeys are not just one; they’re not a single person but a team. That’s why they were able to take out four people in such a short amount of time! This isn’t a brawl or a fight; it’s a cold, ruthless execution. We’re in danger!”
+ 
+
+ 
+His words jolted everyone awake from their stupor.
+ 
+
+ 
+Yes, it was unreasonable to send just one person to wipe out twenty survivors.
+ 
+
+ 
+With such a disparity in numbers, who would kill whom?
+ 
+
+ 
+There must be a scheme behind this!
+ 
+
+ 
+…
+ 
+
+ 
+[Uh…]
+ 
+
+ 
+[Correct reasoning process leading to the wrong conclusion.]
+ 
+
+ 
+[Actually, it’s not really wrong; Tong Zhao alone is like an army. Is there a problem with that?]
+ 
+
+ 
+[No problem; you’re very right.]
+ 
+
+ 
+Understanding this point, Kong Yeming felt that uniting the other teams was now an urgent task.
+ 
+
+ 
+At this moment, the camera suddenly pulled up, higher and higher…
+ 
+
+ 
+Up to the edge of a rooftop of a tall building.
+ 
+
+ 
+The first thing visible on screen were two long, perfectly white legs, creating a strong visual contrast with the pure black military boots. The camera pulled up further, revealing a pair of always bright and alert beautiful eyes coming into the audience's view.
+ 
+
+ 
+It was her.
+ 
+
+ 
+Duan Ge gently swayed her legs, beneath her a bottomless abyss, a maze of complex buildings, as if a single misstep would result in a fatal fall. Yet she appeared oblivious to it all, enjoying the cool breeze high above.
+ 
+
+ 
+Everything in The City was still; there was no traffic, no throngs of people. Those walking through this city were undoubtedly her targets. Duan Ge once again occupied a high vantage point and spotted Kong Yeming and his group.
+ 
+
+ 
+Duan Ge's eyes lit up, narrowing slightly as she tried to see more clearly.
+ 
+
+ 
+But she was not Superman; no matter how hard she strained her eyes, she could only see the vague movement of ants.
+ 
+
+ 
+Duan Ge whispered in frustration, “If only I had binoculars.”
+ 
+
+ 
+Forget it, relying on the boss was not as good as relying on herself.
+ 
+
+ 
+After locating her target, Duan Ge skillfully took a route that the audience could hardly imagine, dashing down. Just when the audience thought she was fearless enough to go anywhere, she chose a safer path while passing through an apartment.
+ 
+
+ 
+[Eh? I thought she would jump straight across.]
+ 
+
+ 
+Just as the audience was puzzled, the special effects team pulled up a small box.
+ 
+
+ 
+In a picture-in-picture format, they replayed Tong Zhao's perspective, and the audience then realized—
+ 
+
+ 
+From Tong Zhao's viewpoint, no matter how bumpy it got, running up and down, or jumping between two buildings, members of the Thunder and Sun teams were always within her line of sight.
+ 
+
+ 
+The earlier adjustment of the route was not for safety but to avoid losing sight of her prey.
+ 
+
+ 
+[Wow, that line of thought is quite terrifying.]
+ 
+
+ 
+[Kong, hurry up and run!]
+ 
+
+ 
+After exchanging information, Kong Yeming and his group illuminated their “spawn points” on the map displayed on their watches, realizing that the distance to both their spawn points and supply points was the same. They deduced that the remaining two teams’ bases wouldn’t be too far away.
+ 
+
+ 
+They needed to find them without being discovered by the enemy…
+ 
+
+ 
+Kong Yeming's eyes lit up: “Right, the resource package!”
+ 
+
+ 
+He Su: “Captain?”
+ 
+
+ 
+“The resource packages that the reinforcements drop irregularly; the drop points are known only to our five teams. We can meet there when the time comes.”
+ 
+
+ 
+Everyone nodded in agreement; it made sense.
+ 
+
+ 
+The female doctor was troubled by the doubts: “In my memory, the five teams couldn’t communicate because they were from different countries. I didn’t expect that when we actually met, we could communicate. The irregularly dropped resource packages also carry the implication that we should fight over them. I suspect there’s a conspiracy behind this.”
+ 
+
+ 
+[Sister Tan is absolutely right; it’s all the fault of the dog program team.]
+ 
+
+ 
+[Feeling sympathy for the program team for a second; the originally planned map had a bug, and in the last-minute switch, Tong Zhao, this big weapon, popped up.]
+ 
+
+ 
+[Who would have thought Tong Zhao’s subconscious would be so fierce?]
+ 
+
+ 
+No one thought so.
+ 
+
+ 
+This is the interesting aspect of instinctive variety shows; the program team is not all-knowing and omnipotent. Even if they can temporarily change the rules, they cannot alter the memories in the contestants’ minds. They cannot achieve the dominion of “with the script in hand, I hold the world.” This is also one of the reasons fans find instinctive variety shows more authentic and appealing than before.
+ 
+
+ 
+The camera pulled back again.
+ 
+
+ 
+The camera pulled back slowly, not causing any visual discomfort, but the audience, prepared psychologically, was still startled—
+ 
+
+ 
+Unexpectedly, Tong Zhao was hanging not far behind Kong Yeming and his group!
+ 
+
+ 
+This was in a physical sense.
+ 
+
+ 
+She hooked onto the railing from a height and swung down, her toes landing on the huge golden “M” sign of McDonald’s. After steadying her position, she fluidly climbed down. In just two or three seconds, she reached the ground, her snowy white arms demonstrating an inexplicable strength.
+ 
+
+ 
+A parkour-loving audience member provided some insights about core strength.
+ 
+
+ 
+[Core strength refers to the muscles that support our upright posture. If this part is well-trained… you know about swinging your legs on parallel bars, right? That’s using core strength. Tong Zhao is the same; many of her amazing parkour moves rely on her core. Her techniques and postures while doing parkour are very standard—any extra movement is wasted, and if it’s not precise, she won’t get through. It’s incredible.]
+ 
+
+ 
+[I shared her in our city’s parkour group, and it has now turned into a fan group for Tong Zhao. “laughs and cries”]
+ 
+
+ 
+Netizens seemed to understand, but in any case, she was awesome!
+ 
+
+ 
+[Tong Zhao is so popular now; if she goes out without a mask, she’ll probably be photographed. I really want to know how she trains her parkour skills while being so busy with her schedules…] The comments showed envy.
+ 
+
+ 
+How does she train?
+ 
+
+ 
+All the real skills were honed at the brink of life and death, and they couldn’t be forgotten.
+ 
+
+ 
+Tong Zhao herself didn’t remember clearly due to the system’s protective measures for her consciousness—if we were to liken Tong Zhao to a computer, her main personality would be the C drive, containing only the necessary content, while the other assorted skills would be stored in her sub-personality, lightening the load.
+ 
+
+ 
+With her toes on the asphalt road, Duan Ge turned her gaze toward the prey.
+ 
+
+ 
+Light enveloped her, casting a gentle halo around her.
+ 
+
+ 
+Duan Ge: [I can’t understand what they’re saying.]
+ 
+
+ 
+Duan Ge: [There are so many people; it’s a bit difficult to take action, so I’ll just follow them.]
+ 
+
+ 
+In the audience’s imagination, following meant something very animated, like hiding behind a telephone pole and trailing along step by step.
+ 
+
+ 
+But Duan Ge’s tracking was not like that.
+ 
+
+ 
+She only ensured that those people remained in her line of sight; everything else was irrelevant. She didn’t mind lagging far behind, fluctuating between distance and closeness, filled with patience. Following and sniping are both disciplines that test one’s patience. There will always be answers at the end of tracking; if there aren’t, then you shouldn’t have embarked on this path in the first place.
+ 
+
+ 
+Sometimes the audience felt anxious for her, but she remained unhurried, maintaining a distance that wouldn’t raise suspicion.
+ 
+
+ 
+Duan Ge saw them arrive at the Julong residences, then change locations, and finally come to a primary school with two boxes of supplies—
+ 
+
+ 
+This was the third supply point.
+ 
+
+ 
+It was also the place where Star Team and Moon Team completed their transaction through gestures.
+ 
+
+ 
+Originally, avoiding other teams meant they shouldn’t have come to such a place, but now their target had shifted, and using a supply point where other teams might come looking as a base was Captain Kong Yeming’s suggestion. Moreover, a primary school was itself a good choice… it was more reliable for escape or defense than residential buildings and had more places to hide supplies.
+ 
+
+ 
+……
+ 
+
+ 
+After a day of busyness…
+ 
+
+ 
+Although they didn’t find new food sources, everyone took a portable gas stove, a frying pan, and some gas canisters from Walmart, deciding to heat the food in the cans before eating.
+ 
+
+ 
+“No matter how hard life gets, we still need a sense of ritual.”
+ 
+
+ 
+He Su rubbed his fists in anticipation.
+ 
+
+ 
+“Yeah, we can find food again. Since Brother Zhang found a baguette that expired a year ago in the bakery, it shows that finding resources in Canaan City isn’t hopeless,” said Team Lightning member A, agreeing. “Besides, there are eight of us. How could we possibly lose when competing for the airdrop supply packages?”
+ 
+
+ 
+Kong Yeming smoothed things over, saying, “Let’s try to unite everyone first; after all, we don’t know the number of enemy lackeys.”
+ 
+
+ 
+“Stop talking about that. Let’s just throw in a few slices of lunch meat!”
+ 
+
+ 
+The lunch meat slid onto the heated frying pan with a sizzle, releasing fat and filling the air with an irresistible aroma that captivated everyone present. He Su took a deep breath and sighed, “It’s true that lunch meat tastes better when it’s fried. Yesterday, eating cold bread with cold meat made my heart feel cold too.”
+ 
+
+ 
+“Yeah, it was really hard to eat.”
+ 
+
+ 
+“You talk too much. The first slice is yours, okay?”
+ 
+
+ 
+Seeing that the lunch meat was nearly done frying, Kong Yeming picked up a piece and stuffed it into a sliced piece of bread before handing it to He Su.
+ 
+
+ 
+He was starving, so he took the bread and started munching on it.
+ 
+
+ 
+The edges of the pan-fried lunch meat were crispy, but biting into it revealed tender meat inside. The hot grease seeped into the fluffy white bread, making it so delicious that it made him feel as if his soul had left his body.
+ 
+
+ 
+In survival variety shows, this kind of gathering to eat rare food is a classic scene that many variety show fans love. It looks especially appetizing and allows them to reflect on the difficulties of survival.
+ 
+
+ 
+The sizzling sound of frying meat made everyone’s mouths water.
+ 
+
+ 
+The oil and meat aroma intertwined, accompanied by wisps of white steam slowly rising…
+ 
+
+ 
+Rising.
+ 
+
+ 
+It reached the ventilation duct in the ceiling.
+ 
+
+ 
+Duan Ge crouched in the ventilation pipe and looked down.
+ 
+
+ 
+The view from the school auditorium was too open for her to follow closely behind, so she chose to sneak through the ventilation duct to see the situation. If anyone was alone, she could take the chance to eliminate them. Unfortunately, there had been no opportunity; they even went to the restroom together, likely already on guard.
+ 
+
+ 
+She had a feeling she would be out for a long time today, so even though she was really dissatisfied with the instant noodles her boss had given her, she still took them along and stuffed them into her waist pouch. To her surprise, this group was getting carried away and actually started frying meat!
+ 
+
+ 
+This was outrageous!
+ 
+
+ 
+The aroma shot straight to Duan Ge's head, making her feel a little defensive and wanting to jump down and kill them all.
+ 
+
+ 
+Duan Ge: [I’m so angry.]
+ 
+
+ 
+Duan Ge: [Stay calm. There are too many people; I can’t take them on.]
+ 
+
+ 
+Duan Ge was very rational.
+ 
+
+ 
+After all, this wasn’t a world of magic and martial arts; she wasn’t a terrifyingly powerful fighting master. Her slender and agile figure was better suited for ambushes and assassinations.
+ 
+
+ 
+[Hahaha, it’s really tragic!]
+ 
+
+ 
+[The bunny is furious!]
+ 
+
+ 
+[When a rabbit is cornered, it will bite! So what if she can’t win? She can still jump down and go all out!]
+ 
+
+ 
+That was impossible.
+ 
+
+ 
+Even if she faced four opponents, it wouldn’t make her heart race. It was just a hot meal; what did that count for? Duan Ge turned over, facing away from the ground, and pulled out a cup of Master Kong instant noodles from the dark ventilation duct…
+ 
+
+ 
+Fortunately, this time she finally had a seasoning packet.
+ 
+
+ 
+Below, there were sounds of laughter and joy, while above, there was a crackle of crispness.
+# Chapter71
+After finishing the instant noodles, Duan Ge fell into serious contemplation.
+ 
+
+ 
+She was considering the possibility of slitting their throats one by one after they fell asleep.
+ 
+
+ 
+But Kong Yeming was quite cautious. He didn’t leave only one person on watch but insisted that two people stand guard, with one person from the Thunder Squad and one from the Sun Squad each time: "Not only can they chat and bond, but it also improves safety."
+ 
+
+ 
+“I have no issue with chatting, sounds nice,”
+ 
+
+ 
+He Su, who loved to talk, scratched his head. “But usually, only one person keeps watch, right?”
+ 
+
+ 
+“There are too many unexpected situations if it’s just one person.”
+ 
+
+ 
+Kong Yeming shook his head.
+ 
+
+ 
+Everyone trusted his judgment completely, and no one objected.
+ 
+
+ 
+So, Duan Ge waited for a while, watching as they ate until they were full, using bread to soak up the gravy and finishing the canned food completely. She waited until they covered themselves with the backstage theater props and tried to sleep... but two tall men still remained awake, sitting to the side and chatting.
+ 
+
+ 
+Duan Ge: [With two people standing guard, setting fire in the auditorium is also not an option.]
+ 
+
+ 
+Duan Ge: [My biggest advantage right now is that they are in the open, while I am in the shadows. They still don’t know I’m nearby. Unless I can ensure a reduction in their numbers with one strike, I can’t act rashly and alert them.]
+ 
+
+ 
+[Tong Zhao is so pitiful, it really broke my defenses watching him. Can’t they give the kid something good to eat?]
+ 
+
+ 
+[Why not sneak down and steal some food?]
+ 
+
+ 
+[Congrats to both teams for successfully avoiding a death flag.]
+ 
+
+ 
+Did they really avoid it?
+ 
+
+ 
+In the middle of the night, the Thunder Squad's guard urgently needed to use the bathroom. Feeling a bit embarrassed, he mentioned it to the Sun Squad’s guard before getting up to go. By then, everyone who should have been asleep was in a deep slumber, and only a few dedicated viewers were still watching the livestream.
+ 
+
+ 
+One advantage of a 24-hour live-stream variety show is that it’s great for night owls to keep on in the background. Many “urban immortals” who stay up all night working or gaming like to keep interesting live streams playing in a small window, glancing at them only when something exciting happens.
+ 
+
+ 
+Going to the bathroom in the middle of the night, an everyday action, didn’t catch much attention from the audience.
+ 
+
+ 
+The restroom was just outside the primary school auditorium, down the corridor. If the door was open, a shout could be heard immediately in the stillness of the night.
+ 
+
+ 
+The other guard chose to stay by the sleeping teammates, urging him to be quick and continue their earlier conversation: "When you get back, I’ll tell you about my second girlfriend."
+ 
+
+ 
+The Thunder Squad guard didn’t turn around but raised his hand, signaling an OK gesture.
+ 
+
+ 
+After stepping outside, his pace faltered. An inexplicable sixth sense made him stop. He looked ahead—clouds had covered the moon, cutting off the only source of natural light. The pitch-black corridor looked like the gaping maw of some monster, and the night wind blowing through the railings should have made it cool and comfortable.
+ 
+
+ 
+But the guard felt as if he had stepped into a mass of jelly.
+ 
+
+ 
+His legs felt rooted to the ground, and he hesitated to take another step forward.
+ 
+
+ 
+Instinct was telling him not to go any further.
+ 
+
+ 
+But compared to the vague sixth sense, the urgency from his full bladder was more convincing. The Thunder Squad guard shook his head, laughing at himself inwardly, thinking he had been overly cautious due to Kong Yeming’s influence.
+ 
+
+ 
+His silhouette disappeared into the darkness.
+ 
+
+ 
+A slender shadow flashed by, hanging outside the railing.
+ 
+
+ 
+Everything happened too quickly.
+ 
+
+ 
+So fast that if the show didn’t provide a replay, viewers who weren’t paying attention to the livestream would have completely missed it. A dagger sliced through his throat and vocal cords effortlessly, like cutting through soft tofu. There was no need for light to precisely find the vital point of the prey. The dagger was the assassin’s fang, sinking into the throat with a single, lethal strike.
+ 
+
+ 
+“Ugh...!”
+ 
+
+ 
+A brief cry barely escaped before it was reduced to a whisper.
+ 
+
+ 
+In terror and panic, the Thunder Squad guard tried to make a sound to warn his teammates, to call for help, but it was already too late. The assassin lurking in the dark had anticipated this, giving him no chance to utter another word.
+ 
+
+ 
+[An Imperial Assassin is not interested in hearing any pleas from their prey.]
+ 
+
+ 
+Another fatality, and the special effects team immediately released the poetic closing line they had long prepared.
+ 
+
+ 
+[The show’s crew really puts effort into creating the right atmosphere.]
+ 
+
+ 
+[This style is amazing, I’m saving this as my signature!]
+ 
+
+ 
+Duan Ge: [It seemed like he wanted to say something?]
+ 
+
+ 
+Duan Ge: [Oh well, even if he did, I wouldn’t have understood it anyway.]
+ 
+
+ 
+[...Our Tong Zhao is really committed to ruining the mood.]
+ 
+
+ 
+[Rabbits shouldn’t refer to themselves as “laozi”!]
+ 
+
+ 
+[Cover the rabbit’s mouth >w<]
+ 
+
+ 
+Since it was the middle of the night, even though the show provided a replay, the number of comments in the live chat was minimal, allowing for relaxed conversations. Yet, among the few comments, about a third were in English: [Is this Tong Zhao? (in English)], [Cool!!!!!!!], [I’ve only seen moves like this in ‘Naruto’; if she had a kunai, it would be even better (in English)], and [Shut up, this is Chinese Kung Fu, not Japanese ninjutsu!].
+ 
+
+ 
+Thanks to the advanced translation software of this era, a simple click would display translated content.
+ 
+
+ 
+Though not always elegant, the translation was accurate enough.
+ 
+
+ 
+The Chinese viewers still watching the stream were shocked.
+ 
+
+ 
+They wanted to say…
+ 
+
+ 
+Actually, this is neither Japanese ninjutsu nor Chinese Kung Fu!
+ 
+
+ 
+What misunderstanding do you have about Chinese Kung Fu?
+ 
+
+ 
+The Thunder Squad guard, who had his throat slit, struggled fiercely. However, Duan Ge used all her strength to shoulder-check him into the cold wall. The collision of flesh and wall made no sound, and he breathed his last in unwillingness. Duan Ge held up the tall man with both hands, preventing the loud noise of his body hitting the ground. She slowly placed him against the wall, sitting him in a pool of his own blood.
+ 
+
+ 
+Whew, whew...
+ 
+
+ 
+An assassin is no bodybuilder—while she could deliver precise and deadly attacks in a short time, moving a heavy human body still took considerable effort.
+ 
+
+ 
+It was such a terrifying task to deal with a corpse—
+ 
+
+ 
+Yet, when she did it, why did it somehow feel like a cute little bunny struggling to pull out a giant carrot?
+ 
+
+ 
+The blood splattered from his artery formed bright red blossoms against the wall.
+ 
+
+ 
+Duan Ge bent down for a moment, taking the watch and glasses off the man's wrist.
+ 
+
+ 
+In the pitch-black environment, only her eyes glowed faintly.
+ 
+
+ 
+That tiny glimmer of light sent a chill through the hearts of all the night owls watching, jolting them wide awake.
+ 
+
+ 
+The assassin's reflection appeared in the restroom mirror.
+ 
+
+ 
+At some point, the clouds had drifted away from the moon, and moonlight poured through the door. She quickly turned her head, the light tracing her high-bridged nose and slightly pouted lips, making her look like a mysterious and dangerous yet beautiful creature.
+ 
+
+ 
+The assassin, with a displeased expression, let out a soft grunt.
+ 
+
+ 
+Duan Ge: [That's what you get for eating meat.]
+ 
+
+ 
+After silently eliminating one person, Duan Ge left without a sound and returned upstairs to resume her short nap.
+ 
+
+ 
+...
+ 
+
+ 
+Twenty minutes passed, and the other guard, He Su, began to sense something was off when the man didn’t return.
+ 
+
+ 
+In such dangerous times, even if someone had diarrhea, they should still hurry back!
+ 
+
+ 
+"Why is he taking so long…"
+ 
+
+ 
+At that moment, He Su's instincts saved his life.
+ 
+
+ 
+Instead of getting up and rushing out to investigate, he chose to wake up his captain, Kong Yeming. This small disturbance also woke up the Thunder Squad members, who hadn’t slept well. They rubbed their bleary eyes as He Su explained the situation. Some teased him for being overly cautious while they got up to check the restroom together.
+ 
+
+ 
+What they found was a floor covered in fresh blood and their teammate’s corpse.
+ 
+
+ 
+Everyone turned pale and, leaning against the walls, vomited violently.
+ 
+
+ 
+The meat they ate that night ended up being for nothing.
+ 
+
+ 
+On the other floor, Duan Ge, hearing the commotion, curved her lips into a smile, revealing a satisfied expression in her sleep.
+ 
+
+ 
+Unable to control his emotions, He Su yelled, “If you have the guts, come out! Hiding and ambushing doesn’t make you a hero! Aren’t there a lot of you? Come out!”
+ 
+
+ 
+Duan Ge turned over in her sleep.
+ 
+
+ 
+Duan Ge: [So lively.]
+ 
+
+ 
+Duan Ge: [They must be really full for their voices to be so loud.]
+ 
+
+ 
+Kong Yeming said, “Let’s get some rest first. Only when we’re well-rested can we fight back.”
+ 
+
+ 
+With death threats lurking nearby, no one dared to ignore Kong Yeming’s words anymore. The strong men huddled together, trembling, and even Sister Tan was treated like a cherished pet, protected on the inside. His decision was indeed correct. Duan Ge exerted psychological pressure while ensuring she could eliminate members. Continuous sleep deprivation would dull people’s reactions and lead to poor decisions, which could be fatal in close-quarters combat.
+ 
+
+ 
+Duan Ge enjoyed a good, restful sleep.
+ 
+
+ 
+...
+ 
+
+ 
+In the later edited version, the production team carefully cut this segment of the kill.
+ 
+
+ 
+It turned out that after everyone settled down to rest and decided to have two people keep watch, Duan Ge went upstairs to the corridor on the second floor to rest. She was a light sleeper, waking up at the slightest noise. When someone passed by downstairs, she immediately woke up, flipped down like a bat, and truly achieved the feat of killing one person in ten steps.
+ 
+
+ 
+When Director Chen woke up in the morning and checked the high-energy segments from the night, a chill ran down his neck, leaving him speechless.
+ 
+
+ 
+If it weren't for the control panel nearby, allowing him to intervene in the variety show world at any time…
+ 
+
+ 
+This was practically a crime scene.
+ 
+
+ 
+What kind of subconscious has he invited?
+ 
+
+ 
+Is Tong Zhao really not a fugitive hiding in the entertainment industry?
+ 
+
+ 
+The assistant director voiced what everyone was thinking: “Should we… call the police?”
+ 
+
+ 
+“Call the police for what?!”
+ 
+
+ 
+Director Chen summoned his fist, ready to attack, and punched the assistant director lightly. “It’s just a variety show! How long has Tong Zhao’s face been popular in the country? If she were a fugitive, how could she have escaped until now? It must be that our script is just too good and fits her perfectly!”
+ 
+
+ 
+While the assistant director obediently took the hit, he secretly reminded himself not to provoke this female star.
+ 
+
+ 
+She was too scary!
+ 
+
+ 
+...
+ 
+
+ 
+Kong Yeming and the others worked hard to sleep, but they didn’t rest well.
+ 
+
+ 
+Duan Ge, on the other hand, had a good rest and woke up early, stirred by her superior’s message—
+ 
+
+ 
+“Based on your known intelligence, choose a location for the gas deployment!”
+ 
+
+ 
+The modified phone, now stripped down to only its essential functions, alerted her that she could choose a location for the gas deployment.
+ 
+
+ 
+Duan Ge calculated the time and figured that the survivors in the school should be waking up soon. The possibility of them being poisoned in their sleep was low... However, she still held onto the thoughts of “what if” and “it doesn’t hurt to try,” deciding to deploy the gas at this school.
+ 
+
+ 
+She skillfully crawled back into the ventilation duct, lying prone at a small window in the ceiling to observe below.
+ 
+
+ 
+With half an hour left until deployment, their watches, tucked away in Duan Ge's waist pouch, lit up.
+ 
+
+ 
+Duan Ge pulled out the vibrating watch—
+ 
+
+ 
+This was the watch she had taken off the Thunder Squad guard's wrist last night, and it was now displaying a miniature map of Canaan City, with a red dot flashing. After double-tapping to zoom in, she saw that the red dot indicated the location of the school.
+ 
+
+ 
+Immediately after, she saw the fugitives below hurriedly packing supplies and belongings, preparing to leave.
+ 
+
+ 
+Hmm?
+ 
+
+ 
+Duan Ge tilted her head slightly.
+ 
+
+ 
+The special effects team had placed a small light bulb above her head.
+ 
+
+ 
+Duan Ge: [Has the information leaked...?]
+ 
+
+ 
+Duan Ge: [Receiving news half an hour early means this gas deployment won’t be lethal. Unless I can create a sealed room they can’t escape from... Ah, I realized too late. If I had known, I would have figured out how to block all the doors last night.]
+ 
+
+ 
+When Duan Ge replayed the situation in her mind, her tone was remarkably calm; she didn’t feel frustrated at all.
+ 
+
+ 
+[Tong Zhao is truly the most transcendent variety show guest I’ve ever seen…]
+ 
+
+ 
+[I want to see her play a female assassin in a movie QAQ]
+ 
+
+ 
+The fact that the fugitives could learn about the gas deployment location half an hour in advance didn’t affect Duan Ge’s confidence at all. She simply noted this time difference for future reference.
+ 
+
+ 
+At this point, the Sun Team was down to seven members.
+ 
+
+ 
+[Fugitives: 15/20]
+ 
+
+ 
+When this data appeared in the upper right corner, a comment popped up in the barrage: [Did Sister Zhao just get a Penta Kill?]
+ 
+
+ 
+[Too bad it wasn’t a streak.]
+ 
+
+ 
+[But it’s all Solo Kills—impressive!]
+ 
+
+ 
+Coincidentally, with the ongoing esports world championship, viewers immediately started discussing and wanted to see Tong Zhao portray an esports player—she displayed the calm and steady demeanor that professional players needed most. It was clear she was a high-level competitor, the kind who wouldn’t lose her cool even in the fifth game.
+ 
+
+ 
+As Tong Zhao followed the Sun and Thunder Teams to “run the gas” and change their location ahead of time, the production team behind the scenes confidently shifted their focus to the remaining two teams...
+ 
+
+ 
+Not only did they closely monitor the guests' progress, but the entire staff also had to keep track of the competition situation while observing the live stream comments, aiming to stir the audience’s emotions and enhance the entertainment value of the show, setting up dramatic twists while ensuring everything could wrap up neatly.
+ 
+
+ 
+The dramatic twist of Tong Zhao instantaneously taking out four people was already enough to satisfy the audience, who were left exhilarated.
+ 
+
+ 
+It just nearly couldn’t wrap back up.
+ 
+
+ 
+This was also something the director was eager to avoid.
+ 
+
+ 
+From the observation cameras, it could be seen that the Star and Moon Teams were back on track.
+ 
+
+ 
+They had settled down at locations ten minutes apart. After seeing that the first gas deployment was far from them, they all relaxed, becoming more proactive in searching for supplies. With a large area of Canaan City rendered inactive, the likelihood of conflict with other teams increased.
+ 
+
+ 
+The early bird gets the worm.
+ 
+
+ 
+Just when it seemed like things were calming down, the production team dropped the first resource supply pack—
+ 
+
+ 
+And informed all team members via their watches that this supply pack contained lethal weapons!
+ 
+
+ 
+Upon seeing the content on the watch, the Sun Team leader, Kong Yeming, changed his expression.
+ 
+
+ 
+In the control room...
+ 
+
+ 
+During lunchtime, when the viewership peaked, the director satisfiedly pressed the drop button: “What’s the point of them all settling down? It’s all about creating suspense. If they really unite, there won’t be much excitement left.” From the production team’s perspective, Tong Zhao was capable of killing and winning, but she shouldn’t do it too quickly.
+ 
+
+ 
+Facilitating communication between the teams was meant to slow down her killing pace.
+ 
+
+ 
+Dropping weapons was not only giving the players the means to resist but also lighting the fuse for conflict.
+ 
+
+ 
+It was also a carefully prepared climax for the audience.
+ 
+
+ 
+A helicopter slowly flew into the skies above Canaan City.
+ 
+
+ 
+All the contestants looked up in unison.
+ 
+
+ 
+Once again, standing at a high vantage point, Duan Ge also raised her head, observing the helicopter's flight path, thinking: What is that thing?
+ 
+
+ 
+As soon as the thought crossed her mind, she pulled out the gun from her waist.
+ 
+
+ 
+It had only one bullet, coming from her unscrupulous boss and the show's "supply resources." She hadn’t used it while killing, thinking it would be a waste of a bullet, but now she took it out without hesitation.
+ 
+
+ 
+Seeing this scene, Director Chen's eyes widened: "That’s impossible to hit; this isn’t a movie—there’s no guaranteed hit coding…"
+ 
+
+ 
+That's right. In many instinctive films, the “marksmen” and “snipers” have every bullet pre-programmed with automatic navigation codes, enabling them to achieve dramatic, guaranteed hits. Such coding is too detailed and needs to be incorporated early in the world-building; it’s not easy to implement in an instinctive variety show.
+ 
+
+ 
+Moreover, the production team didn't want to give Tong Zhao that kind of treatment.
+ 
+
+ 
+One dagger and two arrows could take out a team.
+ 
+
+ 
+Would they really give her a gun that never misses? As if they thought she wasn’t killing quickly enough?
+ 
+
+ 
+However, Duan Ge's marksmanship had withstood countless real-world tests; her physical abilities were slightly above average, and her dynamic vision was comparable to that of a hawk.
+ 
+
+ 
+Her eyes narrowed slightly.
+ 
+
+ 
+The shot was quick, so quick that the data couldn't be altered in time.
+ 
+
+ 
+The shot was loud, loud enough that all the contestants drawn by the helicopter's presence saw this scene.
+ 
+
+ 
+A dark figure brought the helicopter down—
+ 
+
+ 
+This was obviously impossible.
+ 
+
+ 
+It couldn't be done scientifically, nor could it be accomplished in the world of variety shows.
+ 
+
+ 
+But the problem was that the knot hanging the supply drop package was a relatively large target. When the helicopter flew low, Duan Ge, standing on the rooftop water tank of the building, was quite close…
+ 
+
+ 
+One could only say that Duan Ge's habit of occupying the high ground led the production team to forget about this possibility.
+ 
+
+ 
+When that supply package crashed down right in front of Duan Ge, the director gritted his teeth: "Who the hell used a helicopter for a supply drop? Should have used a plane!"
+ 
+
+ 
+Modeling Technician: "Uh, didn’t you say that the rental cost for the helicopter model is cheaper, Director?"
+ 
+
+ 
+Director: "..."
+ 
+
+ 
+He didn’t really expect something to appear at such a height.
+ 
+
+ 
+Isn't the show's budget squeezed out by cutting costs here and there?
+ 
+
+ 
+Speaking of which, the financial strain was partly due to Duan Ge's somewhat high remuneration.
+ 
+
+ 
+"Hiss..."
+ 
+
+ 
+The director slapped his forehead.
+ 
+
+ 
+At the same time, Duan Ge had already opened the huge box, revealing it was filled to the brim with weapons.
+ 
+
+ 
+Duan Ge: "...Wow."
+ 
+
+ 
+[Poor Zhao Zhao, suddenly rich like a rabbit!]
+ 
+
+ 
+[It’s over, it’s over! The big shot has got a full magazine; how are we going to fight with that?]
+ 
+
+ 
+[I’m dying of laughter! Can she really shoot that down? Isn’t this set up by the production team?]
+ 
+
+ 
+The livestream timely gave her a close-up.
+ 
+
+ 
+Duan Ge's eyes widened brightly as she touched the weapons. Underneath them were military rations, the kind that could heat up with just a little cold water.
+ 
+
+ 
+Duan Ge: “This definitely isn’t our military’s supplies.”
+ 
+
+ 
+Duan Ge: “It must be from those fugitives…”
+ 
+
+ 
+She stood up holding the box, carefully searching for an escape route while seriously contemplating:
+ 
+
+ 
+[Is it too late to change jobs now?]
+# Chapter72
+Where’s the air support drop?
+ 
+
+ 
+In the sky, flying, being hoisted by a helicopter, such a large supply drop?
+ 
+
+ 
+All the players on the ground looked up, craning their necks in confusion, still unable to figure out what was happening.
+ 
+
+ 
+The helicopter, following its pre-set flight path, slowly flew to the planned drop location. In front of the four teams preparing to compete for the supplies, it gradually dropped a long, thick hemp rope that had been broken. The point of impact was charred black, and there was nothing below.
+ 
+
+ 
+It was a lonely drop.
+ 
+
+ 
+After completing the “drop” motion, the helicopter continued to fly forward.
+ 
+
+ 
+He Su shouted, “Hey, there’s nothing here!”
+ 
+
+ 
+But this question was clearly in vain.
+ 
+
+ 
+The program had no emotions, and the code had no reason.
+ 
+
+ 
+The helicopter did not answer his question and continued flying without a hint of feeling.
+ 
+
+ 
+He Su, looking hurt, bounced a couple of times in place: “What the heck? Can’t it at least check if the supplies were properly delivered to us? What’s going on with this air support? Totally unreliable! There’s nothing less reliable than our superiors…”
+ 
+
+ 
+The captain held him down, signaling him to stop making a fuss.
+ 
+
+ 
+The bullet comments responded to his question:
+ 
+
+ 
+[Hello, there is.]
+ 
+
+ 
+[There’s hot food to eat, and they’re sending weapons. Isn’t that reliable? Much more reliable than the enemy.]
+ 
+
+ 
+[So funny, doesn’t the production team consider letting Tong Zhao understand what they’re saying?]
+ 
+
+ 
+[I suspect that if Sister Zhao heard it, she’d be so furious that she’d start shooting at all the sharks.]
+ 
+
+ 
+The resource supply drop that sparked the dispute was intercepted, and everyone lost their reason to initiate a conflict. Kong Yeming took the initiative to talk to the two teams who looked hesitant, sharing the information he knew and the potential situations they might face, in order to gain their trust.
+ 
+
+ 
+Reflecting on the tragic deaths of the Thunder team members, Kong Yeming couldn’t help but feel a bit gloomy: “Looking back now, two people guarding the night really isn’t safe enough.”
+ 
+
+ 
+“After all, we don’t have many people; Brother Kong has already thought things through thoroughly.”
+ 
+
+ 
+The Thunder team members comforted him in return.
+ 
+
+ 
+Kong Yeming waved his hand and continued, “Now that all fifteen of us are gathered here, it means that the person who shot down the supply drop earlier doesn’t belong to our camp. They are likely one of the Empire's lackeys, one of those who killed our team members. Since we were able to learn the location of the gas drop in advance, it’s also possible that they know we have a supply drop coming.”
+ 
+
+ 
+“So that person just now…”
+ 
+
+ 
+Moon Team member A recalled.
+ 
+
+ 
+Everything happened very quickly, and with Duan Ge standing on top of a water tank on a rooftop, it was too high. When they heard the gunshot and looked over, they only caught a fleeting shadow and couldn’t even tell if it was a man or a woman. However, both teams were frightened by Kong Yeming's description of the brutal enemy, and coupled with the incredible marksmanship that seemed to have an aimbot, the team quickly agreed to take action together after a brief discussion.
+ 
+
+ 
+The Moon Team agreed, and the Star Team had no choice but to nod and join in.
+ 
+
+ 
+This wasn’t because their team names had a sense of harmony or couple dynamics.
+ 
+
+ 
+The Star Team captain thought to himself, “If I’m the only one who doesn’t join, wouldn’t our four people become isolated targets? Acting as a group is the safest option.”
+ 
+
+ 
+Since the two teams had encountered each other before Director Chen decided to change to a “common language” format, the events that had occurred couldn’t be altered. Thus, the language between the two teams remained unintelligible, and they relied on the remaining survivors to translate.
+ 
+
+ 
+From Duan Ge’s perspective, it sounded like a perfectly identical encrypted communication in gibberish.
+ 
+
+ 
+It was something akin to “wabi wabi, wabi baba.”
+ 
+
+ 
+“After hearing about Mr. Shen's (the fallen Thunder Night Watcher) experiences, I’m too scared to go to the restroom alone,” one member of the Star Team said with a bitter smile.
+ 
+
+ 
+Even though these survivors had never directly encountered the assassin, the ominous shadow of terror weighed heavily on their hearts. In Kong Yeming's description, they possessed the combat power to quickly subdue four tall adult men, patiently lurking, and would never engage in prolonged battles after eliminating one target.
+ 
+
+ 
+All they had seen were cold corpses; they had never witnessed a fight.
+ 
+
+ 
+“This is just like a vengeful spirit…” he whispered.
+ 
+
+ 
+At that moment, the live broadcast displayed a line of special effects text in white against a black background:
+ 
+
+ 
+“The mysterious assassin no one has ever seen, a predator moving through the darkness…”
+ 
+
+ 
+“So, in the imagination of the contestants, what do they think the assassin looks like?”
+ 
+
+ 
+Bullet screen: [This way of speaking has a Japanese variety show vibe to it.]
+ 
+
+ 
+[The world's poorest assassin!]
+ 
+
+ 
+[The rabbit princess reigning over Canaan City?]
+ 
+
+ 
+A blue line appeared above the heads of the fifteen contestants, and as they pulled it upward, fifteen scanned images appeared with a swish—
+ 
+
+ 
+These images embodied the empire’s assassin as imagined in their minds: muscular and brawny men, a classic bearded killer wearing sunglasses, lean figures that clearly seemed like they could take action, and a few who were too timid to imagine anything, resulting in a mental image of nothing but deep black fog.
+ 
+
+ 
+Through the same actions of description, the images that people conjured up could differ vastly.
+ 
+
+ 
+However, they all shared one common point…
+ 
+
+ 
+[Uh, why are they all male?]
+ 
+
+ 
+Among the fifteen scanned images, not a single one depicted a woman.
+ 
+
+ 
+In the contestants’ imaginations, they defaulted to the assumption that this powerful and cold assassin was male.
+ 
+
+ 
+The live broadcast screen was briefly dominated by question marks and ellipses.
+ 
+
+ 
+Stereotypes regarding gender and strength reside deep within people’s hearts; we all know they exist, yet when they are blatantly displayed on the screen, ordinary individuals still feel discomfort. After a moment of unease, the audience began to anticipate their reactions upon finally encountering the assassin in person.
+ 
+
+ 
+So, what is the beautiful and handsome assassin sister doing?
+ 
+
+ 
+The live camera panned to the top floor of an abandoned industrial building, which was also Duan Ge’s “birth point.”
+ 
+
+ 
+A wisp of white mist rose.
+ 
+
+ 
+Duan Ge was having a meal.
+ 
+
+ 
+She opened two large cans.
+ 
+
+ 
+One was sardines in tomato sauce, and the other was a can of luncheon meat.
+ 
+
+ 
+Duan Ge placed the fish and meat on top of the self-heating rice, pressing it down tightly, and let it steam for a while. When she opened the lid, the audience was struck by the excessiveness of this meal… the sweet and sour tomato sauce from the sardines seeped into the slightly hard rice, and each bite was filled with meat, the savory flavor coating her entire palate.
+ 
+
+ 
+After several consecutive meals of bland, tasteless instant noodles, Duan Ge's sense of taste had almost been neglected.
+ 
+
+ 
+This steaming can-topped rice completely awakened her taste buds!
+ 
+
+ 
+She ate quietly, without making exaggerated slurping sounds, her brows and eyes subtly curving with happiness, which was incredibly contagious.
+ 
+
+ 
+[Ah, this…]
+ 
+
+ 
+In that moment, even those who weren’t fans of Tong Zhao could understand her cute point.
+ 
+
+ 
+This was clearly a rare instance of a bunny getting a hearty meal!
+ 
+
+ 
+With such a cute bunny, why would they let her go hungry? The production team deserves a beating!
+ 
+
+ 
+Tong Zhao's looks really can make an impact.
+ 
+
+ 
+While fans were being charmed, some passersby couldn't tear their eyes away from the screen, secretly thinking.
+ 
+
+ 
+Duan Ge was obviously starving.
+ 
+
+ 
+When she ate heartily, her expression was focused and serious, her cheeks bulging with rice and meat, completely contrasting with the cold and capable image she usually projected 90% of the time. If she behaved like this all the time, it would lose its special charm; people are creatures of novelty, needing visual stimulation, and occasionally seeing this kind of side on screen…
+ 
+
+ 
+Ah, it's hard to tell whether it's the aroma of the rice or the scent of Tong Zhao.
+ 
+
+ 
+...
+ 
+
+ 
+After finishing her meal, Duan Ge eagerly began to examine the spoils of this round.
+ 
+
+ 
+In the production team's plans, Kong Yeming and his team were supposed to seize the airdrop, gaining weapons and an advantage, slightly tipping the scales in their favor. The airdrop box contained a variety of weapons—
+ 
+
+ 
+First was the most common type, a rifle that was easy to use.
+ 
+
+ 
+She looked at the three fully loaded magazines in her hand and then at the one bullet her dog-like boss had given her, now already fired from the empty handgun...
+ 
+
+ 
+Duan Ge felt a surge of dissatisfaction again.
+ 
+
+ 
+There was a very powerful machine gun, and when Duan Ge's fair little hand touched the black firearm, a segment of official commentary appeared:
+ 
+
+ 
+“The production team did not provide Tong Zhao with the instructions or usage for these weapons.”
+ 
+
+ 
+“Because they were not prepared for her at all...!!”
+ 
+
+ 
+The underlying resentment in the words amused the audience.
+ 
+
+ 
+But could this really stump Duan Ge?
+ 
+
+ 
+Not a chance.
+ 
+
+ 
+“This gun has a very fast firing rate; it's a bit unstable, so I need to be careful,” she pondered. “But it’s great for defending a building; it can handle multiple opponents pretty well.”
+ 
+
+ 
+The box also contained two sniper rifles and an eight-times scope.
+ 
+
+ 
+“If I take this…”
+ 
+
+ 
+Duan Ge curled her lips, creating a troubled arc.
+ 
+
+ 
+The audience thought she wouldn’t be able to use the sniper rifle.
+ 
+
+ 
+“Isn't that a bit unfair?”
+ 
+
+ 
+...
+ 
+
+ 
+“Alright, I’m willing to call her the strongest force.”
+ 
+
+ 
+“If anyone else said that, I’d think they were just trying to show off, but my sister Zhao really can do it.”
+ 
+
+ 
+“By the way, didn’t we find out about Tong Zhao’s background before? After seeing all her impressive moves in the reality show, I still think this girl is incredible; she’s not like ordinary people.”
+ 
+
+ 
+“I’m a bit confused—did Tong Zhenming raise his daughter with the intent of making her a special forces soldier?”
+ 
+
+ 
+Tong Zhenming felt innocent, but he wasn’t entirely sure.
+ 
+
+ 
+Because Tong Zhao’s school emphasized “quality education,” she took numerous extracurricular classes. Not to mention the usual ones like piano, violin, tennis, and calligraphy, but some boys were interested in learning shooting. Anyway, he was only responsible for transferring the tuition fees from his card each semester. What if Tong Zhao had learned these things without him knowing? He could only scoff at the thought that she didn’t act like a proper girl.
+ 
+
+ 
+Just as the comments were discussing Tong Zhao's background, a line of official special effects text appeared again:
+ 
+
+ 
+“Even if you’re cheating, you have to follow the basic rules!”
+ 
+
+ 
+“Since this is an exclusive weapon for fugitives, the little thief rabbit is prohibited from using it /heart/heart.”
+ 
+
+ 
+The official commentary subtitle was being cute, but the analysis that followed was very serious: “The weapon resources from the reinforcements utilize brand new technology. The fingerprints of all twenty survivors can unlock these weapons, and they cannot be used unless unlocked.”
+ 
+
+ 
+“Cold weapons are not subject to this restriction.”
+ 
+
+ 
+In other words, although she was restricted from exclusively using these bug-like weapons, she still obtained a crowbar, a crossbow, an axe, and the telescope she had longed for.
+ 
+
+ 
+After all, this unexpected operation of intercepting the airdrop was an impressive maneuver that the production team highly recognized. They couldn't simply discourage her enthusiasm for completing the mission but could only secretly adjust the balance.
+ 
+
+ 
+...
+ 
+
+ 
+The more cute she acted in front of the audience, the more seasoned she was behind the scenes.
+ 
+
+ 
+Director Chen lit a cigarette, biting it with satisfaction: “Fortunately, the batch of firearms we rented came with identity verification functions; otherwise, we would have been in serious trouble.”
+ 
+
+ 
+“Even humanoid self-driving hacks need to be sanctioned by the officials!”
+# Chapter73
+Duan Ge quickly discovered the issue with the firearms.
+ 
+
+ 
+She had never dealt with such high-tech equipment, so she naturally couldn't figure out how to unlock them.
+ 
+
+ 
+Just as she frowned in confusion, she found a manual at the bottom of the box. After reading the brief introduction, her expression immediately fell.
+ 
+
+ 
+[Facepalm.jpg]
+ 
+
+ 
+[Sister Zhao might be ungrateful, but the production team is really the worst.]
+ 
+
+ 
+[Why would firearms have instruction manuals?]
+ 
+
+ 
+A line of special effects text quickly addressed the audience's confusion:
+ 
+
+ 
+《Since we're pursuing the unethical, we must follow through completely!》
+ 
+
+ 
+《That's right, that instruction manual was hastily compiled by our modeling team in a burst of speed and placed inside!》
+ 
+
+ 
+The audience was delighted.
+ 
+
+ 
+It was evident that, in addition to the two opposing factions, this survival variety show also featured an invisible conflict—Tong Zhao versus the relentless production team. Such a confrontation was rare in the world; typically, it was the director who maintained tight control over the guests. No one expected Sister Zhao to turn the tables and repeatedly surprise the audience.
+ 
+
+ 
+Viewers had grown a bit weary of traditional variety shows.
+ 
+
+ 
+They would wonder which parts were meticulously arranged by the production team, and what meaning there was in their emotional ups and downs. The conflicts that occurred in variety shows were all scripted by the director, differing only slightly from movies in terms of portraying real human emotions.
+ 
+
+ 
+Unlike movies, variety show fans looked forward to the unexpected.
+ 
+
+ 
+When they saw the production team flustered by the endless surprises from the special guests, that anticipation was fully met.
+ 
+
+ 
+Some viewers watch reality shows hoping to see celebrities fail.
+ 
+
+ 
+If the celebrities don’t fail, then fine, let the famous production team take the fall instead!
+ 
+
+ 
+Past guests who have appeared on "One Life Survivor" continue to follow this show, frequently venting their frustrations on Weibo. Most of them are unknowns or ordinary people, so initially, no one paid them any attention. Until one former contestant who made a name for themselves on the show posted:
+ 
+
+ 
+@Long Jue v:
+ 
+
+ 
+“If I have such opponents, I probably won’t win the prize.”
+ 
+
+ 
+Although they didn't name names, those in the know immediately understood who they were talking about.
+ 
+
+ 
+Fans quickly replied, insisting, “How could that be? Brother is the best!”
+ 
+
+ 
+As for the retweets from bystanders and marketing accounts, most were looking forward to a clash between the two.
+ 
+
+ 
+A few insightful individuals commented: “They’re a legitimate movie star who just finished shooting a wildly successful blockbuster, and they’re booked solid with offers… Variety shows are just for fun; what’s with all the hype about a showdown like Tyson vs. Ali?”
+ 
+
+ 
+Thinking about it carefully, that was indeed the case.
+ 
+
+ 
+[Ah, but this is still really fun! Just thinking about it is amusing!]
+ 
+
+ 
+Fun and interesting.
+ 
+
+ 
+This is truly the ultimate answer in this era of entertainment, the only currency more effective than beauty.
+ 
+
+ 
+Long Jue's Weibo post created quite a buzz, coinciding with a day that lacked major entertainment news. Netizens, bored and scrolling through a dull homepage, found a marketing account that had dug up previous guest comments from "One Life Survivor" about this episode. They compiled a collection of the guests reveling in the production team’s misfortune, which naturally led to a wave of shares and laughter.
+ 
+
+ 
+More curious onlookers, eager to see how Tong Zhao could turn a deadlock into something spectacular, flooded into the live stream. When it came time to choose a contestant they were interested in, they unhesitatingly picked Tong Zhao, proudly displaying their "freebie" fan badge...
+ 
+
+ 
+Backstage, a tally was taken...
+ 
+
+ 
+Sure enough, Tong Zhao’s votes completely overwhelmed the competition.
+ 
+
+ 
+The focus was gradually drifting away from the planned direction of the variety show.
+ 
+
+ 
+While the production team could control the resources Tong Zhao received, the audience's expectations were beyond their control.
+ 
+
+ 
+Strictly speaking, having Tong Zhao on "One Life Survivor" was an invisible confrontation between the second dimension and the third dimension, a challenge from humanity to God!
+ 
+
+ 
+…
+ 
+
+ 
+Viewers were enjoying the show to the point of exasperation and found Tong Zhao extremely entertaining.
+ 
+
+ 
+This woman was like an endless book, full of inexhaustible talents and never-ending bravado.
+ 
+
+ 
+The production team thought Tong Zhao was out of options.
+ 
+
+ 
+Meanwhile, the audience was enthusiastic about offering her strategies, as if she could actually hear them—
+ 
+
+ 
+[Why not just cut off the thumb from the previous corpse?]
+ 
+
+ 
+[You must not have seen many dramas; fingerprint unlocking technology relies not only on having a hand but also on body temperature and pressure sensitivity… A person’s body temperature drops quickly after death, so even if you had the finger of a deceased fugitive, the usable period would only be three hours; after that, it would start to stiffen and be ineffective.]
+ 
+
+ 
+[As long as you have a hand, it's fine, hahaha. That’s a weird sense of humor that really hit the mark.]
+ 
+
+ 
+Duan Ge tentatively reported this issue to her superior.
+ 
+
+ 
+“I’ve captured a batch of weapons supply from the survivors, but I can’t use them because of the fingerprint authentication lock. Is there a solution?”
+ 
+
+ 
+In Duan Ge’s understanding, her superiors were quite capable.
+ 
+
+ 
+It was just that most of the time, they didn’t help her.
+ 
+
+ 
+This was also convenient for the production team to give orders that would be accepted.
+ 
+
+ 
+Her dog-like superior (the director) replied bluntly: [You are already a mature imperial assassin; you need to learn to unlock it yourself.]
+ 
+
+ 
+Duan Ge tightened her grip on the gun handle expressionlessly.
+ 
+
+ 
+There was a groove on the gun where one finger could be pressed down, but when she placed her finger there, it didn’t respond. Since this was support from that group, it would most likely require their fingerprints.
+ 
+
+ 
+Duan Ge thought: [Why?]
+ 
+
+ 
+The inner voice in her mind shifted from bland to suppressed, interrupting the rhythm of the audience's laughter.
+ 
+
+ 
+Is the rabbit feeling wronged?
+ 
+
+ 
+Duan Ge thought: [Why is it that their superiors even considered this? A bunch of useless people I wiped out are getting such good treatment?]
+ 
+
+ 
+Duan Ge thought: [They all deserve to die!]
+ 
+
+ 
+The rabbit was not wronged; the rabbit was furious.
+ 
+
+ 
+The gun handle creaked under her grip, making a sound that was unsettling to hear.
+ 
+
+ 
+Duan Ge suddenly stood up, deciding not to wait any longer. She wanted to quickly eliminate these pampered little useless individuals favored by a good leader, complete the mission, and get a pass from her superior to leave the city. Once she left Canaan City, she would figure out a way to get rid of her dog-like superior who was connected to her, and from then on, she would be free as a rabbit in the open sky.
+ 
+
+ 
+...
+ 
+
+ 
+In the filming backstage.
+ 
+
+ 
+Director Chen pondered, "Is the dog-like superior she wants to eliminate talking about us?"
+ 
+
+ 
+The deputy director replied, "It's just a dog-like superior; it should be you, Director."
+ 
+
+ 
+Director Chen said, "I'll smoke a cigarette to calm my nerves."
+ 
+
+ 
+Director Chen continued, "I'm not scared, really not scared. Just think about how great this program is for the effects! Tong Zhao's Weibo is also gaining followers; it's a good thing! At worst... at worst, we can wait for her to wake up and treat her to a nice meal!"
+ 
+
+ 
+...
+ 
+
+ 
+Led by Kong Yeming, the survivors moved away from the gas area and settled on the second floor of a residential building.
+ 
+
+ 
+Since the four-person team was easily wiped out and only one of the eight was killed, Kong Yeming ultimately decided that five people would share one room, sleeping in the living room, while two single rooms would be occupied by the remaining three who would guard the hallway.
+ 
+
+ 
+They would try to act collectively as much as possible.
+ 
+
+ 
+Kong Yeming sternly emphasized, "Remember, if anything happens, wake up the others. We need to respond immediately as a group. From what happened before at school... at least he still fears large numbers.”
+ 
+
+ 
+They were not standing there waiting to be slaughtered; they had a strong desire to survive.
+ 
+
+ 
+Seeing such careful consideration, the audience couldn’t help but worry about Tong Zhao.
+ 
+
+ 
+[If only there were guns.]
+ 
+
+ 
+Although there were no guns, Duan Ge had obtained a batch of cold weapons, which was a significant upgrade from just carrying a dagger.
+ 
+
+ 
+Now she had a telescope!
+ 
+
+ 
+Searching for living people in a dead city was like everyone looking for grains of sand, searching for those moving points of life.
+ 
+
+ 
+Kong Yeming was very cautious and did not venture out for the first two days, staying on the second floor and sharing the limited food with everyone. Even though they tried to ration their food, feeding fifteen mouths consumed a lot. After two days of stable living, they finally began organizing small teams to go out and search for resources on the third day.
+ 
+
+ 
+Five people per team, divided into three teams for action.
+ 
+
+ 
+They searched through one street after another, ensuring that if one team called for help, the other teams would be within earshot and could immediately provide support.
+ 
+
+ 
+It was very well thought out.
+ 
+
+ 
+While they huddled tightly at their base, Duan Ge still roamed the streets and alleys of The City every day, never feeling bored. The audience also preferred not to watch these people cowering in fear; it was too dull—much better to watch Tong Zhao!
+ 
+
+ 
+It had to be said that Tong Zhao truly knew how to create engaging moments.
+ 
+
+ 
+Duan Ge, who never took the conventional route, seemed to have endless energy as she leaped across rooftops and residential buildings. She even climbed the walls of tall structures, a faint smile gracing her lips, indicating that she was thoroughly enjoying herself. The wind blew her short hair, making her appear even more light and agile.
+ 
+
+ 
+Fans simply couldn’t get enough.
+ 
+
+ 
+With lively and cute children's music playing in the background, it was like watching a happy little bunny frolicking through a concrete forest.
+ 
+
+ 
+Today, the bunny was also guarding the peace of The City!
+ 
+
+ 
+Two days of silence couldn't wear down the patience of a professional assassin. When Kong Yeming and his group appeared within Duan Ge’s line of sight, the previously dull live stream instantly erupted with excitement—
+ 
+
+ 
+[Bunny is charging for Mama!]
+ 
+
+ 
+[I’ve been keeping the livestream open for the past two days; it feels like I’ve raised a desktop pet that can run and jump.]
+ 
+
+ 
+[They’re all moving together. Does Bunny have any chance?]
+ 
+
+ 
+……
+ 
+
+ 
+Just when the mom fans were worried, Duan Ge, spotting the survivors on screen, broke into a smile.
+ 
+
+ 
+In this variety show, she didn’t smile much.
+ 
+
+ 
+Apart from the rare times when she enjoyed a hearty meal and her eyes crinkled with satisfaction, she mostly had a slight smile while parkouring alone, but it was very faint and not obvious. It merely allowed the audience to sense her relaxed demeanor, but it couldn’t be said that she was genuinely happy.
+ 
+
+ 
+[The girl looks so cute when she smiles QAQ]
+ 
+
+ 
+[I want to protect Bunny’s smile!]
+ 
+
+ 
+Pampered by the mom fans, Duan Ge let out a light, low laugh filled with a hint of dark intensity: [I’m going to kill them all today!]
+ 
+
+ 
+[……]
+ 
+
+ 
+[??????]
+ 
+
+ 
+What should we do if the little one is about to go on a killing spree? Waiting online, getting anxious.
+ 
+
+ 
+Duan Ge selected a submachine gun, a handgun, and a rifle from the box to take with her, leaving the sniper rifle behind since she wouldn’t be able to use it for long-range since she couldn’t unlock it. She stuffed one gun into her backpack, filling it with as many magazines as she could carry; it felt heavy and satisfying.
+ 
+
+ 
+The survivors were searching through a shopping mall.
+ 
+
+ 
+Most of the store windows had been shattered, and there were no edible supplies left inside. However, items like jewelry and watches remained intact, though without specialized lighting, even expensive luxury goods lost their luster.
+ 
+
+ 
+Seeing where they were searching improved Duan Ge’s mood even more.
+ 
+
+ 
+The mall's complex layout was more suitable for her to showcase her skills.
+ 
+
+ 
+Duan Ge thought: [So which of these three teams should I target?]
+ 
+
+ 
+The mall had a large glass ceiling, providing excellent lighting during the day. If the midday sun was too harsh, the security would press a button backstage, causing a mechanism on the roof to pull up a layer of gauze to help diffuse the light.
+ 
+
+ 
+In ordinary survival variety shows, it was a popular segment for contestants to “scavenge” in supermarkets and malls.
+ 
+
+ 
+But the audience clearly preferred to watch from Tong Zhao's perspective.
+ 
+
+ 
+They wanted to see how she would infiltrate the mall, outnumbered!
+ 
+
+ 
+Duan Ge first went to the already deserted security room, where she found the mall’s floor plan. Searching through the security room often yielded useful information; most of the guards who were just getting paid wouldn’t pay attention to it and didn’t need to.
+ 
+
+ 
+The entire city was without electricity, and the surveillance cameras were all in darkness.
+ 
+
+ 
+Duan Ge studied for a while, first turning off all the lights in the mall, and then she found the switch for the mall's backup power supply—
+ 
+
+ 
+[Can this even be done?]
+ 
+
+ 
+[The little one is really capable!]
+ 
+
+ 
+[No, this is beyond just being capable... How are you so familiar with this?]
+ 
+
+ 
+Tong Zhao had become a mature assassin, learning how to infiltrate the mall on her own.
+ 
+
+ 
+After a while, the ten or so surveillance screens surrounding Duan Ge lit up, clearly capturing the movements of all the survivors.
+ 
+
+ 
+After all, it was backup power mainly used to supply emergency lighting and network access in the hallways, so it couldn't be used for long. Duan Ge calculated that it could only support an hour...
+ 
+
+ 
+Duan Ge: [That’s enough.]
+ 
+
+ 
+Duan Ge: [I just need to see where they are.]
+ 
+
+ 
+The survivors still didn't know they had not only been discovered but that every one of their movements was under the hunter's surveillance. She focused on one man and one woman from Team Sun; their shorter stature made them easier to control. It would be best to catch them both.
+ 
+
+ 
+They moved systematically through the shops, skipping over stores that clearly had no use—such as clothing and bag shops—while targeting stores like Watsons for thorough searches.
+ 
+
+ 
+The survivors hadn’t come away empty-handed that morning.
+ 
+
+ 
+They had found a wrench in a hardware store and equipped each person with a kitchen knife from a market; at least they could pretend to be tough guys in Causeway Bay without any issues.
+ 
+
+ 
+After observing the surveillance footage in the security room for a while, Duan Ge hid in a Watsons store.
+ 
+
+ 
+[The little bunny is lurking!]
+ 
+
+ 
+[Waiting for a bunny ambush.]
+ 
+
+ 
+Once the perspective shifted to that of the hunter, the survival show suddenly felt much lighter.
+ 
+
+ 
+For the group of survivors, however, this was undoubtedly a horror film.
+ 
+
+ 
+Having searched in the mall for quite some time, the group gradually lowered their guard. He Su was the first to walk into the store: “We haven’t found anything; these people cleaned out the place before they fled.”
+ 
+
+ 
+The snack area was completely empty.
+ 
+
+ 
+As far as the eye could see, there were still unnecessary supplies like foundation and lipstick on the shelves.
+ 
+
+ 
+The five of them didn’t give up, spreading out to search in the spacious store.
+ 
+
+ 
+The female doctor spotted a large roll of toilet paper in the corner.
+ 
+
+ 
+Duan Ge patiently waited in the staff room.
+ 
+
+ 
+Someone would definitely come in looking for something, but the door was narrow, only allowing one person to pass at a time, maybe two at most if they squeezed close together.
+ 
+
+ 
+She didn’t need to peek out to see; just from the sound of footsteps, she could tell how far away the person was. She needed to take control of this unlucky soul coming toward her in two seconds.
+ 
+
+ 
+The footsteps grew closer.
+ 
+
+ 
+He Su wanted to see if any supplies had been overlooked in the staff lounge.
+ 
+
+ 
+As he opened the door, the audience’s hearts rose, their heartbeats quickening.
+ 
+
+ 
+As He Su grasped the doorknob, he thought: “Could there be enemy troops inside?”
+ 
+
+ 
+This sudden thought heightened his alertness as he prepared to quickly back out and shout for help if anything seemed off.
+ 
+
+ 
+He pushed the door open forcefully.
+ 
+
+ 
+However, the space behind the door was empty, unlike the scene he had imagined.
+ 
+
+ 
+Only the audience watching the livestream knew that the slender Duan Ge was hiding behind the door, right in his blind spot.
+ 
+
+ 
+He let out a sigh of relief.
+ 
+
+ 
+He Su: "Ugh, I'm really such a coward."
+ 
+
+ 
+With that thought, he took three steps inside.
+ 
+
+ 
+At that moment, Duan Ge was already behind him.
+ 
+
+ 
+Before He Su could sense anything, Duan Ge reached out and locked her arm around his neck while roughly slapping a piece of packing tape over his mouth, sticking it to his nose as well. This left him only able to make muffled sounds of "Mmm mmm mmm mmm!" — quieter than if she had just covered his mouth.
+ 
+
+ 
+Uncertain about how long the unlocking would last, Duan Ge had no intention of suffocating him, fearing that if he died, his fingerprints would be useless.
+ 
+
+ 
+She quickly tied He Su's hands behind his back with some rope and used his thumb to unlock all three guns. After unlocking, the pixel display above the small groove lit up, counting down... 1800, 1799, 1798...
+ 
+
+ 
+Duan Ge: "Is this in seconds?"
+ 
+
+ 
+She quickly calculated in her mind: it was half an hour, hovering on the ambiguous edge of being enough and not enough.
+ 
+
+ 
+Duan Ge gently peeled back a corner of the tape to allow He Su to breathe, albeit barely.
+ 
+
+ 
+As soon as he made contact with the air, he immediately began to gasp for breath, panicking to the point of forgetting to make a loud noise to call for help.
+ 
+
+ 
+Duan Ge lowered her head and smiled. "Be good, and I’ll let you live for another half an hour."
+ 
+
+ 
+He Su couldn’t understand her words and grew even more frightened.
+ 
+
+ 
+The audience understood.
+ 
+
+ 
+The content of the show had been so lighthearted over the past two days that they had almost forgotten what kind of killing machine she really was. They genuinely thought of her as a carefree, struggling little rabbit, parkouring around The City every day...
+ 
+
+ 
+[Ugh, I've been A'd!]
+ 
+
+ 
+[Cubs are so ruthless, mommy likes it, woo woo woo!]
+ 
+
+ 
+[Tong Zhao, kill me!]
+ 
+
+ 
+Without showing a hint of her sharp teeth and claws, she had truly made the cheetah look like a rabbit.
+ 
+
+ 
+Once he calmed his breathing, He Su was able to make out the appearance of the person in front of him in the dim light—
+ 
+
+ 
+It was an exceptionally beautiful face.
+ 
+
+ 
+Even when viewed from below at this deadly angle, it was still undeniably stunning.
+ 
+
+ 
+Although it was highly inappropriate, He Su couldn't help but think: “So there are such beautiful girls among the enemy's lackeys?”
+ 
+
+ 
+[Well, there goes my chance with a pretty girl.]
+ 
+
+ 
+[But if you had a choice, would you rather be killed by a greasy middle-aged man or have your throat slit by a gorgeous and sexy lady?]
+ 
+
+ 
+[...Such a persuasive argument!]
+ 
+
+ 
+"He Su?"
+ 
+
+ 
+Although the struggle between the two ended quickly, with Duan Ge successfully executing a unilateral ambush, some sounds inevitably emerged from the staff room. Her teammates called out loudly, as this guy was quite talkative, and just a single response would put them at ease.
+ 
+
+ 
+From the depths of the room, a voice could be heard, but it was an unintelligible female voice.
+ 
+
+ 
+The remaining four momentarily failed to react—
+ 
+
+ 
+Then, a gunshot rang out, echoing throughout the entire store!
+# Chapter74
+What happened?
+ 
+
+ 
+Lying on the ground with his hands tightly bound by a belt, He Su couldn't understand the situation outside. When he heard his companions' terrified screams, he crazily arched his body on the floor and kicked his legs wildly, trying to stop the crazy woman from her violent actions.
+ 
+
+ 
+Just as he was about to kick Duan Ge, she effortlessly lifted her leg to evade the attack and then stomped down hard on his ankle. He had no idea where she was stepping, but she managed to immobilize his legs, her military boots mercilessly grinding against him.
+ 
+
+ 
+Duan Ge: "Be quiet."
+ 
+
+ 
+He Su didn't know what she was saying.
+ 
+
+ 
+However, the violent glare she shot at him made him instinctively close his mouth tightly.
+ 
+
+ 
+How terrifying...
+ 
+
+ 
+He Su shivered.
+ 
+
+ 
+Duan Ge's shooting was precise; in the blink of an eye, the number of survivors in the top right corner dropped from 15/20 to 11/20. The three people in the filming room awoke to see the equally astonished expressions of the staff...
+ 
+
+ 
+Actually, people had rushed over upon hearing the commotion.
+ 
+
+ 
+Duan Ge initially wanted to wait with her gun for a few of the less intelligent ones to walk into her line of fire. However, after being angrily reminded by Kong Yeming, no one dared to make a reckless move.
+ 
+
+ 
+"Fine then…”
+ 
+
+ 
+She softly muttered as she used strong packing tape to attach the machine gun's grip to a cardboard box, placing it under the cashier counter and slightly pushing it out. Anyone glancing in from outside the store would see the exposed gun muzzle.
+ 
+
+ 
+“Sure enough, ambushes suit my style better, right?”
+ 
+
+ 
+“And I’ve really wanted to try this trick…”
+ 
+
+ 
+After taking down three enemies who had much better treatment than her, Duan Ge's mood improved. She smiled joyfully and chatted with the foreign survivor in a language he couldn't understand—he didn't understand, but he could see what this woman was planning.
+ 
+
+ 
+Duan Ge picked up another gun and took a breathable, dust-proof black mask from her waist bag, putting it on and revealing only her cold, sharp eyes.
+ 
+
+ 
+This wasn't to conceal her identity or to look cool.
+ 
+
+ 
+It was just that there was quite a bit of dust in the ventilation ducts.
+ 
+
+ 
+Duan Ge crawled from the ventilation duct to the women’s restroom on the same floor— a short distance, just adjacent. If it were any farther, she wouldn’t bother crawling. Not only would it be strenuous, but she would also likely end up in strange places, which weren't suitable for moving around.
+ 
+
+ 
+……
+ 
+
+ 
+Kong Yeming was very cautious. After hearing the gunfire, he stopped his companions from rushing in impulsively.
+ 
+
+ 
+He suspected that his teammates were likely in grave danger. They couldn't fall into the enemy's trap and let the sacrifices increase: “Since they have firearms but haven't directly killed us, they probably aren’t as numerous as I imagined. If we all rush in together to attack, maybe some will get injured, but the chances of survival will be higher.”
+ 
+
+ 
+“Rush in?” someone questioned.
+ 
+
+ 
+“I’ll be the first to charge in,” Kong Yeming replied calmly. “We could also exit now and escape the mall, but I don’t think we’d get far. What do you all think?”
+ 
+
+ 
+The group fell silent.
+ 
+
+ 
+Someone quickly poked their head out to glance through the glass window and immediately spotted the dark muzzle of the machine gun, their heart tightening as they pulled their head back. “He’s still waiting for us! Shouldn’t we just run?”
+ 
+
+ 
+Run?
+ 
+
+ 
+The group exchanged glances, and no one dared to make a decision. They all turned to look at Kong Yeming in unison.
+ 
+
+ 
+Kong Yeming sighed inwardly, realizing that his strategy of overwhelming numbers was no longer feasible—[These people are too likely to betray their teammates,] he thought.
+ 
+
+ 
+[Kong Ge (brother ) is right.]
+ 
+
+ 
+[Kong Ge understands people; I'm starting to like him. He performed the best in this show besides Tong Zhao.]
+ 
+
+ 
+[Why not just run away directly?]
+ 
+
+ 
+The next moment, Kong Yeming’s inner voice answered the audience’s doubts: [The enemy’s goal is to wipe us out. We have a relationship of life and death. Previously, the enemy was hidden while we were in the open, but now that we finally know he’s in the Watsons store, we can’t miss this opportunity to take him out…]
+ 
+
+ 
+Kong Yeming helplessly sighed, “Since you all want to run, then let’s run.”
+ 
+
+ 
+One more day of life is better than none.
+ 
+
+ 
+This answer obviously aligned more with the group’s expectations; after all, turning and fleeing didn’t require much courage.
+ 
+
+ 
+However, just as they turned around, gunfire erupted—
+ 
+
+ 
+Specifically coming out from the ventilation duct, Duan Ge had two reasons: one, she had a sudden impulse to make her entrance in the classic assassin style, and two, she was also on guard against what Kong Yeming had said about a group of eleven charging in at the same time.
+ 
+
+ 
+To minimize risk, she had to catch them off guard.
+ 
+
+ 
+Before everyone could react, she planned to take them all out!
+ 
+
+ 
+All the escapees were focused on the muzzle of the gun in the Watsons store ahead, and they all felt a sense of retreat, thinking about how to avoid the enemy and that if they could escape, they should.
+ 
+
+ 
+With this mindset, how could they possibly stand against Duan Ge?
+ 
+
+ 
+“How did she appear behind us!?”
+ 
+
+ 
+“Run!”
+ 
+
+ 
+As gunfire rang out, some fled without a word, some reminded their “teammates,” and others pulled their teammates to use as shields against the bullets. Kong Yeming was hoarse, desperately trying to reorganize them, only to find it was futile.
+ 
+
+ 
+The pressure Duan Ge exerted made them lose their courage to resist.
+ 
+
+ 
+Except for Kong Yeming, whose fighting spirit was at 50, everyone else was below 20—while they weren’t scared to the point of begging for mercy and waiting to die on the spot, they also lacked the courage to fight her to the death. With every gunshot, someone in the filming chamber awakened in shock.
+ 
+
+ 
+Not only were they unprepared, but the production team was also stunned.
+ 
+
+ 
+The entire staff backstage fell into silence.
+ 
+
+ 
+No one had anticipated this kind of situation.
+ 
+
+ 
+Yes, Tong Zhao had previously performed excellently, her handgun skills were precise, but what was happening in this mall was on a completely different level. Who would have thought that she could kill everyone as if she were in a god mode! You could say she was like a berserker; she was seriously crawling through the ventilation ducts for infiltration. You could call her an assassin, but she was at most relying on surprise attacks, killing them all right in front of them.
+ 
+
+ 
+After a brief moment of silence, the backstage erupted into a flurry of discussions—
+ 
+
+ 
+“Damn, what’s going on? She’s taking them out one by one!”
+ 
+
+ 
+“Quick, modify the data! Don’t let her finish them all!”
+ 
+
+ 
+The data technician was nearly in tears: “What can I change to stop her? Besides, I think what I change isn’t as fast as her kills…”
+ 
+
+ 
+All the staff turned to look at Director Chen, waiting for him to make a decision.
+ 
+
+ 
+A cigarette slipped from Director Chen’s fingers and fell to the ground.
+ 
+
+ 
+“Don’t worry about it,” he said.
+ 
+
+ 
+“Don’t worry? Are you serious? But this is a huge mess!”
+ 
+
+ 
+…
+ 
+
+ 
+Director Chen raised his hand and pressed his forehead: “Because there’s only one survivor left alive, and everyone else has awakened.”
+ 
+
+ 
+Ah, I see.
+ 
+
+ 
+The filming backstage fell into another long silence, with only the voices of questions rising and falling in the filming chamber—seeing that almost everyone had awakened, the contestants thought it was a normal filming wrap-up, still puzzled that they didn’t feel the usual headache from the common instinctive reaction after long-duration variety shows.
+ 
+
+ 
+Only Tong Zhao and He Su remained asleep in the cabin.
+ 
+
+ 
+…
+ 
+
+ 
+Duan Ge didn’t listen to stories and left no survivors.
+ 
+
+ 
+After clearing the scene, she counted the number of bodies present, confirming that she had captured them all. She then diligently began to take off their watches: "I want to see what I can draw from this."
+ 
+
+ 
+After removing the watches, Duan Ge remembered that she had left someone in the store.
+ 
+
+ 
+He Su heard the outside noise transition from chaotic sounds to angry shouts, then to screams, and finally to silence…
+ 
+
+ 
+He began to wish he was the one getting shot.
+ 
+
+ 
+Not out of self-sacrifice, but because waiting for the big bad to return here was truly more torturous than death.
+ 
+
+ 
+He Su felt his heart racing, almost ready to burst out of his chest.
+ 
+
+ 
+[No sound? Could it be that they all got killed? How did she do it? Is she crazy? Help, I really hope she forgets about me and doesn’t come back to finish me off. But if she leaves me here, I won’t survive either…]
+ 
+
+ 
+In his fear, all kinds of chaotic thoughts flooded his mind.
+ 
+
+ 
+Then, he heard footsteps gradually approaching.
+ 
+
+ 
+[He Su’s perspective really gives off a horror movie vibe.]
+ 
+
+ 
+[Just a passerby, watching a survival variety show for the first time, how does one survive this?]
+ 
+
+ 
+[Look at the title, “One Life Survivor,” that’s about Tong Zhao. Don’t you get it yet?]
+ 
+
+ 
+[Wow, that’s a perfect essay right to the point.]
+ 
+
+ 
+With tears in his eyes, He Su saw that slender figure.
+ 
+
+ 
+She was splattered with blood, coming from a respectable opponent— the only one who dared to rush in and try to dodge her shots with agile movements, closing the distance to subdue her, Kong Yeming. This bloodied appearance made her seem even colder and more sinister, almost inhuman.
+ 
+
+ 
+Like the Grim Reaper?
+ 
+
+ 
+That description seemed too literary.
+ 
+
+ 
+In any case, when He Su saw her, he couldn't help but think: "My dog at home looks like this when it sees the butcher."
+ 
+
+ 
+All the audience focused on how Duan Ge would handle He Su.
+ 
+
+ 
+He Su was still wondering: "Am I going to face the top ten tortures of the Qing Dynasty? No, please! Just give me a quick end!"
+ 
+
+ 
+"You really didn’t need to be kept alive,"
+ 
+
+ 
+Duan Ge scoffed with a tone of indignation, "Seems like all that good food didn’t improve you much."
+ 
+
+ 
+The rabbit was not only brutal but also held a grudge.
+ 
+
+ 
+He Su, considered somewhat handsome among the contestants and having survived to the end, made the audience draw comparisons between the two. Unfortunately, Duan Ge didn’t give them a chance to ship a new couple; she simply ended it all with a shot, took off his last watch, and hummed a little tune as she returned to the base.
+ 
+
+ 
+A true total annihilation.
+ 
+
+ 
+Like something out of a dream...
+ 
+
+ 
+In traditional variety shows, guests often tone down their performance to continue filming, even if they are extremely talented, or they may build up their act gradually. But in survival variety shows, for Duan Ge, this was her real life—who would consider the show’s effect in a fight for survival? If you’re going to kill, do it quickly; anything that can be resolved in one day should never be dragged into the next!
+ 
+
+ 
+How could they continue filming like this?
+ 
+
+ 
+The staff exchanged glances, and half of them went to explain the situation to the awakened guests.
+ 
+
+ 
+In order to stretch the episode’s runtime and because they had previously promised Tong Zhao's fans that the top ten on the fan leaderboard would have the chance to participate in a lottery for her, the show was not over yet; it had just turned into a "one-person variety show." In the real "One Life Survivor," after returning to the base, she redeemed a total of nineteen watches at once!
+ 
+
+ 
+The results of the ten lottery draws were determined by the top ten wealthy fans on the leaderboard:
+ 
+
+ 
+1. Unified Old Vinegar Pickled Beef Noodles
+ 
+2. Hema Fresh Instant Food
+ 
+3. Soup Master
+ 
+4. Mediterranean Chicken Skewers (a box of 7 skewers)
+ 
+5. A pack of marinated salmon
+ 
+6. Lazy Instant Handcrafted Mini Lobsters
+ 
+7. A shampoo and body wash set from a certain sponsor brand
+ 
+8. A snack gift pack
+ 
+9. Self-heating mini hot pot
+ 
+10. Strawberry Milk-flavored Popsicle
+ 
+
+ 
+...
+ 
+
+ 
+After exchanging for a pile of miscellaneous items, Duan Ge sat cross-legged in front of a mountain of supplies, no longer as excited and anxious as she had been when she saw the cooked food before. She leisurely picked through the items, glancing at this one for a moment and touching that one, exuding the happiness of a hamster surrounded by a room full of sunflower seeds.
+ 
+
+ 
+After all, having experienced the resource shortages of a post-apocalyptic world, Duan Ge had a deep obsession with food.
+ 
+
+ 
+Even a bland and tasteless instant noodle cake would be thoroughly enjoyed by her.
+ 
+
+ 
+In the end, Duan Ge chose a pack of marinated salmon, Mediterranean-style chicken skewers, and a self-heating hot pot. Once the mini hot pot was heated up, she tossed in the chicken balls, letting them roll around in the boiling, spicy red oil broth, which soon glistened with a layer of oil.
+ 
+
+ 
+After eating and drinking her fill, she treated herself to a strawberry milk-flavored popsicle...
+ 
+
+ 
+What a divine life this was!
+ 
+
+ 
+Duan Ge: [Does this mean the dog boss is finally acting like a human?]
+ 
+
+ 
+Hearing the little one’s confused thoughts, the fans were eager to jump up: [Absolutely not, it’s all about mom’s love!]
+ 
+
+ 
+[The dog production team wouldn’t treat her like a person; only we are the solid support behind our little one.]
+ 
+
+ 
+[I want to see Tong Zhao on a food variety show; she looks so cute when she eats seriously!]
+ 
+
+ 
+Duan Ge: [Never mind, none of these seem like normal supplies anyway...]
+ 
+
+ 
+After finishing her meal, Duan Ge carefully packed up the remaining supplies and slung the ridiculously heavy backpack onto her back, heading toward the quarantine line outside of The City. She had completed her mission, her hands stained with blood, and the smell of gunpowder lingering on her palms.
+ 
+
+ 
+As the sun set, it gradually draped the entire City in a layer of golden clouds.
+ 
+
+ 
+Duan Ge walked down the deserted street, the setting sun casting a long, elongated shadow behind her, her slender figure contrasting amusingly with the heavy, oversized backpack.
+ 
+
+ 
+The background music was Delara's "We Don't Run From Anyone."
+ 
+
+ 
+Assassins fear nothing.
+ 
+
+ 
+No matter who it is or how many people there are, Duan Ge will not shy away.
+ 
+
+ 
+As her figure grew smaller in the distance, the scene gradually blurred, and the only clear words that remained were...
+ 
+
+ 
+"One Life Survivor."
+ 
+
+ 
+This time, the survivor is: Tong Zhao.
+ 
+
+ 
+This time, the production team had no time to modify the data.
+ 
+
+ 
+The wall Tong Zhao stood behind was so high that even a desperate dog couldn’t jump over it.
+ 
+
+ 
+As the list of behind-the-scenes staff appeared, the audience finally realized... it was really over! Those who had come to enjoy the show left five-star reviews in the live stream, while seasoned variety show fans quickly noticed that this was clearly at least half shorter than the expected season duration. Ending it like this was likely a last resort...
+ 
+
+ 
+What else could they film?
+ 
+
+ 
+Would they just let Tong Zhao do an eating broadcast, filling the remaining half of the duration with that?
+ 
+
+ 
+Throw the "dead" guests back in for a sequel titled "One Life Survivor: Twenty People Return from the Dead"? Please, that would be utterly humiliating; the audience would be furious, and no one would tolerate such nonsense. After weighing the pros and cons, Director Chen chose the path with the least loss, leaving this episode with a dignified conclusion and hoping for high quality—
+ 
+
+ 
+As long as enough people watched, they could still break even.
+ 
+
+ 
+Once they realized it was finished, some reluctant variety show fans and supporters didn’t exit; instead, they began chatting in the comments section, filling the screen with applause emojis for a while.
+ 
+
+ 
+[It wasn't enough to watch; I want to see Tong Zhao continue filming!]
+ 
+
+ 
+[Will Tong Zhao still participate in variety shows in the future?]
+ 
+
+ 
+[What variety show would still dare to invite her? She would just take everyone out!/Dog head]
+ 
+
+ 
+[Don’t be so petty; this is the production team underestimating her abilities. If it were a survival show on a deserted island, it might be much more interesting.]
+ 
+
+ 
+[I’ve said it before: waiting for Sister Zhao to battle a T-Rex!]
+ 
+
+ 
+The comments were so lively that even after the live broadcast of "One Life Survivor" ended, the discussion continued for a full two hours, overshadowing other serious 24-hour variety shows that were airing at the same time, leaving them frustrated and speechless.
+ 
+
+ 
+So annoying.
+ 
+
+ 
+……
+ 
+
+ 
+When Duan Ge woke up in the holographic filming pod, she immediately relinquished her position to her primary persona.
+ 
+
+ 
+The long-sleeping Tong Zhao opened her eyes, looking dazed, as if her soul had been scattered.
+ 
+
+ 
+When she finally opened her eyes, the first thing she saw was the chandelier on the ceiling and a circle of staff and fellow guests surrounding the pod.
+ 
+
+ 
+It was like a combination of Tang Seng, Sha Seng, Sun Wukong, and Zhu Bajie, all with the same "You’re awake!" expression.
+ 
+
+ 
+Director Chen was delighted: “You’re awake!”
+ 
+
+ 
+It was pure and perfectly aligned with reality.
+ 
+
+ 
+Tong Zhao was even more confused.
+ 
+
+ 
+Propping herself up with one hand on the bottom of the pod, she asked after her assistant sister helped remove the data cables connecting her forehead and temples, “What is everyone doing? Is this a collective viewing of my remains? I’m not dead, am I?”
+ 
+
+ 
+“Puh! Don’t say such ominous things.”
+ 
+
+ 
+The assistant used to be her fan.
+ 
+
+ 
+After several episodes of "Cloud Raising the Rabbit," the fan's admiration had transformed into maternal love. Hearing Tong Zhao curse herself like that, she couldn’t help but disapprove and correct her. Tong Zhao was more accepting of the care that girls might overstep boundaries, so she obediently nodded and said, “Okay.”
+ 
+
+ 
+Director Chen wore a sympathetic expression: "Let’s put it this way—she can’t possibly die even if everyone else does."
+ 
+
+ 
+The other staff immediately showed expressions of discomfort, clearly feeling called out.
+ 
+
+ 
+Tong Zhao, who hadn’t yet regained her memories, looked over: "Director, do you really want me to die?"
+ 
+
+ 
+"No, no!"
+ 
+
+ 
+Under her intense gaze, Director Chen quickly shook his head like a mouse that had its tail stepped on. "I wouldn’t dare! Um, actually, this is everyone waiting for you to join us for a celebration feast."
+ 
+
+ 
+Tong Zhao was puzzled: "Even though I don’t have a headache, don’t you all need to rest this time?"
+ 
+
+ 
+In the past, whenever filming a long-term survival variety show, they would always arrange a full day of rest after each awakening.
+ 
+
+ 
+At this point, Director Chen sighed again: "No need to rest."
+ 
+
+ 
+After all, it won’t take long.
+ 
+
+ 
+The others died much earlier than her, and after a shower, they all said they were well-rested.
+ 
+
+ 
+It didn’t matter that the others weren’t coming; this meal was mainly because he didn’t want to offend Tong Zhao and wanted to make a good impression before she regained her memories.
+ 
+
+ 
+So Director Chen clearly explained to the others before arranging the celebration feast that those who didn’t want to come didn’t have to.
+ 
+
+ 
+But how could the guests pass up the chance to get close to a variety show director?
+ 
+
+ 
+Knowing that the celebration feast would be filmed in full for behind-the-scenes editing later, everyone became even more enthusiastic.
+ 
+
+ 
+Even the amateur guests who weren’t pursuing fame but came to have fun immediately decided to attend the dinner when they learned they would have a chance to eat with Tong Zhao, even if they had to endure a headache.
+ 
+
+ 
+With twenty guests and the staff behind the scenes, there had to be at least four large tables of food.
+ 
+
+ 
+The production team was considerate in this regard. Noticing the weather forecast predicted no rain that evening, they set up the banquet by the lakeside, allowing everyone to enjoy the beautiful scenery while indulging in delicious food. After returning to her room to freshen up, Tong Zhao changed into casual attire for the event. Her table was filled with the main crew members, including the director, assistant director, and variety show screenwriters.
+ 
+
+ 
+As soon as Tong Zhao appeared, there was a wave of cheers by the lakeside—
+ 
+
+ 
+“The super assassin has arrived!”
+ 
+
+ 
+“Super assassin? Isn’t it an empire?”
+ 
+
+ 
+“Because she has killed more than eight people without dying even once, she’s a super assassin now.”
+ 
+
+ 
+“Wow, that’s impressive!”
+ 
+
+ 
+The crew of ‘One Life Survivor’ was relatively young, and they spoke so casually that it felt like a barrage of comments.
+ 
+
+ 
+Tong Zhao hadn’t regained her memories from the variety show yet, but seeing this scene, she smiled slightly with a calm demeanor, as if everything was under her control. Her gaze fell on Director Chen, who immediately understood and stood up to pull out the chair next to him: “Come on, Sister Zhao, sit here.”
+ 
+
+ 
+It felt a bit strange for her to be called "Sister Zhao" since she was younger, and it carried a hint of flattery.
+ 
+
+ 
+"Sister Zhao" was a compromise between the two.
+ 
+
+ 
+Before filming the variety show, the others looked at her with suspicion or disdain.
+ 
+
+ 
+But after filming…
+ 
+
+ 
+She silently observed the looks the others gave her and found only admiration.
+ 
+
+ 
+A small number of the guests who had fallen early still looked at Tong Zhao with awe.
+ 
+
+ 
+As Tong Zhao sat down, she asked the voice of Duan Ge in her mind: "What did you do to win these people over as your fans?"
+ 
+
+ 
+Duan Ge replied, "I haven't remembered yet."
+ 
+
+ 
+Concubine Chen was quite pleased that no one dared to look at her with lustful eyes anymore: "Isn't this only natural? Little Ge is just that outstanding."
+ 
+
+ 
+Duan Ge smiled slightly: "You’re right."
+ 
+
+ 
+By the lakeside, there was a long truck with a screen hanging from the cargo area.
+ 
+
+ 
+The assistant director beside Tong Zhao explained that this was going to be used for projecting exciting clips from ‘One Life Survivor’ during the meal.
+ 
+
+ 
+The variety show screenwriter looked a bit constipated: "Actually, it's just your solo performance, Sister Zhao."
+ 
+
+ 
+"Really?" Tong Zhao asked, a bit curious.
+ 
+
+ 
+”You'll know when you see it later."
+ 
+
+ 
+The waitstaff quickly began serving the four large tables.
+ 
+
+ 
+Tong Zhao glanced over; the other tables were filled with beautifully presented home-cooked dishes.
+ 
+
+ 
+But in front of her…
+ 
+
+ 
+There were abalone, sea cucumbers, shark fins, and fish maw—nothing less than the most luxurious, with even more extravagance!
+ 
+
+ 
+"Miss Tong, please move aside," a server said softly. Tong Zhao instinctively shifted to the side, and the plate in front of her was taken away, replaced by a large bowl of Buddha Jumps Over the Wall!
+ 
+
+ 
+How big is it?
+ 
+
+ 
+To be specific, after this bowl of Buddha Jumps Over the Wall was placed down, she could no longer see the faces of the people sitting across from her.
+ 
+
+ 
+It was uniquely set in front of her, and no one else had one.
+ 
+
+ 
+The others looked completely normal, seemingly unaware that there was any problem at all.
+# Chapter75
+The waiter opened the lid and explained:
+ 
+
+ 
+“Our Buddha Jumps Over the Wall is made using a more traditional method, going through thirty processes, twelve cooking techniques, and incorporating thirteen types of meat and seafood, bringing out its aroma and freshness with sea salt.”
+ 
+
+ 
+As the lid was opened, a fragrant aroma filled the air.
+ 
+
+ 
+Tong Zhao had no doubt that it truly involved thirty processes.
+ 
+
+ 
+After all, sitting atop was half a large abalone soaking in golden broth. Since the ingredients were this lavish, the kitchen naturally would be willing to invest more effort to avoid wasting such expensive ingredients.
+ 
+
+ 
+“Why not try it while it's hot?”
+ 
+
+ 
+Director Chen kindly poured her a drink: “This wine is also quite good; it’s locally brewed fruit wine. You can have a taste, and if you don’t like it, just let them switch to juice or water.” He spoke in detail, as if afraid Tong Zhao might misunderstand and think he was forcing alcohol on her.
+ 
+
+ 
+“Okay, thank you.”
+ 
+
+ 
+The drinking glasses were small, and with the director being so courteous, Tong Zhao also gave him face and downed the drink.
+ 
+
+ 
+Director Chen visibly relaxed.
+ 
+
+ 
+The other staff members also looked at the director with approving eyes.
+ 
+
+ 
+What can I say about this atmosphere?
+ 
+
+ 
+It was like when a certain gang leader in "Young and Dangerous" poured tea and offered apologies to characters like Chen Haonan or Liang Kun; if he didn’t accept it, it would imply that someone might end up dead.
+ 
+
+ 
+Tong Zhao considered herself a law-abiding good citizen with a fairly good temper,
+ 
+
+ 
+But this is too much!
+ 
+
+ 
+Abnormal behavior is suspicious. Could it be that they want something from her and are trying to butter her up first?
+ 
+
+ 
+She quietly asked, “Is this Buddha Jumps Over the Wall only for me? Isn’t that inappropriate?”
+ 
+
+ 
+“There’s nothing inappropriate about it; after all, you’re the winner,”
+ 
+
+ 
+Director Chen smiled slightly and raised his voice to ask everyone, “Do you have any objections?”
+ 
+
+ 
+The whole table shook their heads in unison, looking completely convinced.
+ 
+
+ 
+“You see,”
+ 
+
+ 
+Director Chen continued, “If you don’t believe me, I can ask the other tables…”
+ 
+
+ 
+Tong Zhao stopped his puzzling behavior, wanting to say to eat quietly and not cause a scene, but then she noticed that everyone was sitting quietly without touching their chopsticks, all looking like they were waiting for her to start eating first.
+ 
+
+ 
+[...Duan Ge, how many people have you gotten into trouble with this!]
+ 
+
+ 
+Duan Ge had an innocent expression: [They used to wait for me to eat first in the camp; I got used to it.]
+ 
+
+ 
+The “camp” here referred to the survival camp she had led in the apocalyptic realm, where everything revolved around her. Even couples who fought would hesitate to act without consulting her first. Later, when conditions improved and there was surplus food, babies were even born wanting to take her surname, asking her to name their children. The opposing forces criticized her for fostering a cult of personality during the apocalypse, but it didn’t stop many people from calling her the “faith in the ruins.” She just wanted to say, “Stop talking nonsense and get to work.”
+ 
+
+ 
+Tong Zhao smiled and picked up a piece of fish maw with her chopsticks, placing it on a bowl of white rice to eat.
+ 
+
+ 
+Seeing this, the others finally felt relieved and began to eat along with her.
+ 
+
+ 
+The flavor of the underworld was getting stronger and stronger; it wouldn’t surprise her if everyone started calling her “Boss” tomorrow. Tong Zhao silently ate for a while and noticed that the big screen began to play a highlights reel. As everyone's attention shifted to the screen, she quietly asked the director, “I’ll just ask directly, do you need my help with something?”
+ 
+
+ 
+With her posture so low, it was either an apology or a request for assistance.
+ 
+
+ 
+“Just say it plainly; whether it can be done is my business,” Tong Zhao made her words even more straightforward. Like Duan Ge, she didn’t like beating around the bush or playing guessing games, as it was a waste of time.
+ 
+
+ 
+Director Chen showed a moment of surprise, then realized she had misunderstood.
+ 
+
+ 
+“How could that be? If I had to say I’m asking you for a favor, it would just be to hope that Sister Zhao can cooperate in various ways during the subsequent promotions and help out with our little show.”
+ 
+
+ 
+Tong Zhao nodded, “Of course, as long as it’s not excessive, I will cooperate. Whether I can attend will depend on the specific schedule.”
+ 
+
+ 
+Director Chen sighed inwardly; she was right to be popular. From her performances in the variety show, one could see that she had a strong sense of responsibility and an aggressive personality. In person, she was polite and pragmatic. Even though this variety show was like a runaway horse, he still wanted to collaborate with Tong Zhao again…
+ 
+
+ 
+Forget it; it was pointless to think about it.
+ 
+
+ 
+Of course, he wanted to work with her, but the question was whether he was worthy. He couldn’t even get a meeting.
+ 
+
+ 
+“To achieve the desired effect and balance during the show, we’ve been making things difficult for you backstage. We didn’t want you to misunderstand after regaining your memory, thinking we invited you just to target you. So we’ve prepared good food and drink for you; consider it compensation from all of us staff for Sister Zhao.”
+ 
+
+ 
+Tong Zhao understood.
+ 
+
+ 
+She thought to herself, Sister Zhao isn’t such a petty person…
+ 
+
+ 
+Wait, why was she even calling herself “Sister” now!
+ 
+
+ 
+Han Zhi: [Hahaha, it’s a bit cute that Sister Zhao is calling herself that.]
+ 
+
+ 
+Duan Ge was curious: [I want to see how they’re making things difficult for me.]
+ 
+
+ 
+The big screen quickly fulfilled Duan Ge’s wish.
+ 
+
+ 
+The footage showed her first lottery draw, pulling out three packs of Master Kong instant noodles labeled "Breakfast," "Lunch," and "Dinner." The director zoomed in, giving her a close-up of her dumbfounded expression.
+ 
+
+ 
+Tong Zhao: [Hahahaha!]
+ 
+
+ 
+Duan Ge: [That’s not too bad; instant noodles were quite common food back in my time, just with low nutritional value.]
+ 
+
+ 
+Just as she said it was fine, the next moment, she saw that the instant noodles didn’t have any seasoning packets.
+ 
+
+ 
+Duan Ge: [……]
+ 
+
+ 
+Duan Ge: [Was that on purpose?]
+ 
+
+ 
+Tong Zhao asked Director Chen if this was part of the show’s effect.
+ 
+
+ 
+Unexpectedly, the modeler chimed in: “It wasn’t on purpose. When I was writing this segment of code, my cat jumped up and randomly pressed a bunch of keys, and when I deleted the mess, I accidentally deleted a portion that included the seasoning packet code.”
+ 
+
+ 
+He showed Tong Zhao the screensaver on his phone, which was a golden gradient fat cat: “This stupid cat is the culprit; it owes Sister Zhao an apology!”
+ 
+
+ 
+The cat was just too cute, so Tong Zhao had no choice but to forgive it.
+ 
+
+ 
+The remaining exciting clips were pretty standard, mostly showing Duan Ge rampaging and ambushing others. No wonder everyone looked at her with both respect and fear—it's the subconscious effect of variety shows. Even though she herself didn’t seem that fierce, she was still quite intimidating. Some who had already regained their memories were even more afraid of her, like mice seeing a cat, feeling a deep sense of trepidation.
+ 
+
+ 
+Later, getting shot in the mall wasn’t too impactful; it was all just headshots.
+ 
+
+ 
+The leader of the Cloud Squad, the Thunder Night Watcher, and He Su had practically developed "Fear of Zhao Syndrome."
+ 
+
+ 
+Not only did they insist on sitting far away, but they also occasionally glanced over with concerned looks.
+ 
+
+ 
+It was too obvious; Tong Zhao found it hard to ignore them.
+ 
+
+ 
+Fortunately, the Buddha Jumps Over the Wall was quite delicious. She poured a generous spoonful of broth over her white rice, so fresh that she forgot about the gazes of those three little cowards.
+ 
+
+ 
+Although Tong Zhao’s Buddha Jumps Over the Wall was a special version made just for her, the quality of the food on the other tables was also decent. Overall, everyone seemed to enjoy the meal, chatting enthusiastically about the entertainment programs—there were quite a few nearby establishments in the film city, including KTV, Werewolf, and script-killing games.
+ 
+
+ 
+Director Chen invited her to go to KTV together.
+ 
+
+ 
+Tong Zhao thought that since she didn’t know anyone in the production team and hadn’t made new friends during the variety show, there was no need to join in the festivities. It would be better to head back to her room to rest and chat with her agent about any new developments during the filming… so she politely declined Director Chen’s invitation: “You all have fun; I want to rest.”
+ 
+
+ 
+This time, Director Chen didn’t insist but kindly reminded her that the villa area in the film city offered SPA massage services, and members involved in the variety show could enjoy a half-price discount.
+ 
+
+ 
+Tong Zhao was tempted.
+ 
+
+ 
+She left a message for her agent, saying she was going for a spa massage and that if Sister Chu needed her, she could call. She could listen while getting the massage. Sister Chu replied with a “Okay, I’ll wait a moment; I’m currently dealing with another artist being caught making out with their assistant.”
+ 
+
+ 
+Making out made Tong Zhao laugh: [Is it that serious? Will it be made public? Looks like the only way to bury this news is for me to make out with my assistant too!]
+ 
+
+ 
+Her assistant was a girl with a round face, who was also one of her fans.
+ 
+
+ 
+Sister Chu replied with a string of frantic gibberish.
+ 
+
+ 
+Director Chen’s recommendation was spot on; the SPA services in the film city were very professional, and the service attitude was great. After Tong Zhao explained that she just wanted to rest and didn’t need any conversation, there were no unnecessary words throughout the session. As the therapist began to apply essential oil to Tong Zhao’s back, her phone rang.
+ 
+
+ 
+Already prepared, Tong Zhao put on her Bluetooth headset and listened to Sister Chu update her on the latest situation.
+ 
+
+ 
+The main point was about the National Studies Martial Arts Hall.
+ 
+
+ 
+Sister Chu: “That’s a legitimate big shot. Not only does he hold a high status in the entertainment industry, but he also has considerable influence in politics.” She listed a long string of titles, which sounded dazzling and impressive: “In recent years, he’s taken a liking to young people surfing the internet.”
+ 
+
+ 
+Got it, in short, he really appreciated Duan Ge.
+ 
+
+ 
+Tong Zhao: “What should I do about that? Are there any dinner parties I can attend?”
+ 
+
+ 
+At this, Sister Chu drew in a sharp breath: “Shi Dingjun has invited you to audition for his ‘The Knives of the Maiden’ If you succeed, you should be able to meet the old man… Shi Dingjun is his senior apprentice.”
+ 
+
+ 
+“Ah?”
+ 
+
+ 
+Tong Zhao had some impression of this director, but it wasn’t very deep.
+ 
+
+ 
+After all, he wasn’t the kind of person like Shi Qianqiu, who was always making sensational remarks to the media; the media loved to interview Shi Qianqiu because he always had explosive, candid comments. Director Shi, on the other hand, was a very stable and down-to-earth type. He usually only spoke publicly at formal events, and even if reporters caught him off-guard, they could only get very formal responses.
+ 
+
+ 
+As for other matters…
+ 
+
+ 
+In any case, no one is interested in the romantic life of a serious middle-aged artist. Director Shi has been married for many years, and at most, there might be a few lines written about his infertility news. However, he has said that his wife has health issues and doesn’t plan to have children; the couple supports each other and plans to live out the next life together. Some audacious reporter provocatively asked, “Doesn’t Director Shi think it’s a pity not to leave any offspring in the world after a hundred years?”
+ 
+
+ 
+Shi Dingjun wasn’t angry; he said, “I’ve left behind many great films.”
+ 
+
+ 
+Then he smiled slightly:
+ 
+
+ 
+“Compared to my ‘bloodline’... ahem, I’m not tall enough at 175 cm, I developed myopia at an early age, and I usually have some issues during annual health checks. I’m not a handsome man; I wouldn’t say my genes are very exceptional. But I can confidently guarantee that every one of my films is an excellent work.”
+ 
+
+ 
+This response clearly distinguished him from the reporter.
+ 
+
+ 
+Of course, it also put him in a different league compared to Shi Qianqiu, who is famous for being child-free. Tong Zhao had seen reporters ask him the same question. At first, he ignored it, saying he didn’t want to respond to personal matters, but after being pressed, he eventually answered:
+ 
+
+ 
+“Alright, then satisfy my desire to be a dad; just call me ‘Dad’ first.”
+ 
+
+ 
+The young reporter fell silent.
+ 
+
+ 
+Digressing, let’s bring it back.
+ 
+
+ 
+Tong Zhao recalled Director Shi Dingjun’s representative works, which were mostly male-centric stories featuring tough men in hard confrontations. During last year’s China Anniversary Celebration, he was invited to shoot a special on martial arts: “The Knives of the Maiden,’ listening to that name, is it about women disguising as men?”
+ 
+
+ 
+“Correct, I’m inviting you to audition for the female lead,” Sister Chu said with a hint of pride, “Now you only need to consider the female lead position.”
+ 
+
+ 
+“Alright.”
+ 
+
+ 
+Although Tong Zhao chooses her own projects, sometimes a good director and a big production can outweigh personal preferences.
+ 
+
+ 
+She was quite realistic about this.
+ 
+
+ 
+If she wanted to take on heavyweight projects and reap the rewards that the industry focuses on, she didn’t want to hold the title of the box office queen for only half a year; she wanted to stay on the throne indefinitely.
+ 
+
+ 
+“Alright, let’s move on to the next topic.”
+ 
+
+ 
+Turning the page.
+ 
+
+ 
+Next was the previously mentioned, jumpy and accusatory, subpar screenwriter who criticized her for her lack of unique subconscious themes. After the broadcast of "One Life Survivor," he was mocked so much that he turned off comments on his Weibo and went silent. Sister Chu was very indignant: “How can this irrelevant person comment on how diverse our Zhao Zhao’s subconscious is? What does it have to do with him? Isn’t he just jealous that ‘Heartless Tribulation’ exploded in popularity? He should be cursing Shi Qianqiu instead; what does it matter to attack the actors? He deserves the backlash.”
+ 
+
+ 
+Tong Zhao couldn’t help but laugh at that.
+ 
+
+ 
+Sister Chu was getting anxious: “Don’t laugh! So many people are waiting to see how good or bad your temper is!”
+ 
+
+ 
+Concubine Chen agreed: “Zhao Zhao, your manager is right. When I first entered the palace, some nameless minion provoked me, and the other concubines remained silent, waiting to see my temperament. If you don’t show these kinds of people a lesson, they will just keep going.”
+ 
+
+ 
+Tong Zhao was taken aback.
+ 
+
+ 
+Show them a lesson? She wasn’t a gang leader.
+ 
+
+ 
+Tong Zhao: “Alright, I’ll think of a way.”
+ 
+
+ 
+For now, she would just get through it.
+ 
+
+ 
+“I won’t laugh, I won’t laugh,” Tong Zhao asked, “Is there anything else?”
+ 
+
+ 
+That settled it.
+ 
+
+ 
+After hanging up the phone, Tong Zhao fully immersed herself back into the massage.
+ 
+
+ 
+The hands of the technician were magical; after a while, she fell asleep. When she woke up, it was already completely dark outside. She dragged her relaxed body back to the small villa to continue sleeping, and she slept soundly until the next morning, waking up to meditate, go for a morning run, and take a shower in one go.
+ 
+
+ 
+After that, it was no longer her concern; Sister Chu told her to stay home and carefully choose a script.
+ 
+
+ 
+The audition for "The Knives of the Maiden" was next week, and before that, she could look at other options.
+ 
+
+ 
+Tong Zhao wanted to pick a gentler script.
+ 
+
+ 
+After all, Duan Ge was too ruthless. Originally, she was a beautiful star, and once the edited version of "One Life Survivor" was released, she was afraid she would become widely known, so she needed to balance things out.
+ 
+
+ 
+Hey, hey...
+ 
+
+ 
+Zhao Zai squeezed half of his head out from the door with the security chain: "Sister, I want to come out and play too."
+ 
+
+ 
+He could squeeze his head out, which showed that Tong Zhao’s mental strength had significantly improved after filming the survival variety show.
+ 
+
+ 
+Tong Zhao: "You should be good to go after filming one more instinct movie."
+ 
+
+ 
+Upon hearing this, Zhao Zai's eyes brightened, and he obediently responded, "Then I'll wait for you, sister."
+ 
+
+ 
+Seeing Zhao Zai made Tong Zhao feel quite complex.
+ 
+
+ 
+Because it was her younger self, she often wondered... was she really that silly when she was young?
+ 
+
+ 
+Her thoughts couldn’t escape the notice of the other personalities, and Zhao Zai puffed up like a little pufferfish: "I'm not silly!"
+ 
+
+ 
+Zhao Zai shrank back, sulking.
+ 
+
+ 
+[Ah.]
+ 
+
+ 
+As soon as the words were spoken, the round little head got stuck.
+ 
+
+ 
+Duan Ge: "Pfft."
+ 
+
+ 
+Empress Chen: "Hahaha..."
+ 
+
+ 
+Han Zhi: "Pet the little Zhao."
+ 
+
+ 
+In the end, it was Han Zhi who helped push Zhao Zai's half head back in. The little loli's eyes filled with tears, looking aggrieved and withdrawn.
+ 
+
+ 
+...
+ 
+
+ 
+The edited version of "One Life Survivor" was about to be broadcast.
+ 
+
+ 
+The people who would watch the 24-hour livestream were mostly hardcore variety show fans, Tong Zhao's core supporters, and a portion of those with too much free time. The general public mostly waited for the edited version to come out, followed by an official promotion before they would truly engage with the show.
+ 
+
+ 
+Promotion was still very important.
+ 
+
+ 
+Without promotion, no matter how popular it was, it would only spread in a small circle.
+ 
+
+ 
+Many people entered the live stream room, saw the survivors just hanging around waiting to die, and lost interest. It was boring.
+ 
+
+ 
+Only the edited version would be worth watching.
+ 
+
+ 
+Tong Zhao promised to promote it well, but first, she had to attend the Li Zhi TV gala, which was the most important matter at hand.
+ 
+
+ 
+At the gala, she would sing a duet of a traditional love song with Song Wanzhuo—
+ 
+
+ 
+Empress Chen made her entrance in a water-red dance dress, playing the guzheng. What a “disobedient” empress, skillfully enticing the audience and the camera. The empress didn’t make overt flirty gestures; rather, every glance, every smile, and every movement exuded charm and allure.
+ 
+
+ 
+Not only was the audience thrilled for her, but the director also particularly adored her.
+ 
+
+ 
+If it weren't for his rationality, the director would have wanted to give the camera to her entirely.
+ 
+
+ 
+Song Wanzhuo?
+ 
+
+ 
+It was like the courtiers who had once been enchanted by the empress's beauty, completely forgetting the emperor's presence. When they finally came to their senses, the feudal mindset of having served their whole lives under a hierarchy of lords and subjects was stirred for the first time—why weren’t they the rulers? Only His Majesty deserved to possess such beauty!
+ 
+
+ 
+Empress Chen didn’t play the entire time; she only had a solo on the guzheng in the middle.
+ 
+
+ 
+She played while Song Wanzhuo sang.
+ 
+
+ 
+Once that segment was over, she stood up and began to dance while singing.
+ 
+
+ 
+The empress stood on a high platform, her long hair styled in an intricate updo adorned with gold ornaments. Some of it was fake hair, not all of it tied up; her long hair flowed behind her like black seaweed. As she spun lightly, the ends of her hair created a captivating arc… Even the audience seated in the back row felt far away from her, yet they seemed to have truly caught a whiff of her hair's fragrance, showing expressions of intoxication.
+ 
+
+ 
+The silk draped over her hands swayed as she danced, the gauze adorned with tiny sequins, resembling a stream of flowing light that made it hard for anyone to look away.
+ 
+
+ 
+The live audience and the viewers online were all ordinary men, so it was normal for them to have weak self-control.
+ 
+
+ 
+However, upon closer observation, the audience members who weren't mesmerized noticed...
+ 
+
+ 
+Even Song Wanzhuo, who was supposed to interact with the camera, was totally focused on Tong Zhao!
+ 
+
+ 
+His gaze was glued to her, unmoving, with a tipsy smile lingering at the corners of his mouth.
+ 
+
+ 
+Seeing this scene, the agent felt like his heart had died and was filled with frustration—having already been outshined by her and stolen the spotlight, how could he be so careless too? Once the performance ended and they were backstage, the agent pulled him aside and asked, "My Wanzhuo, what were you smiling about? You were staring at her the whole time; it was so obvious!"
+ 
+
+ 
+"I know,"
+ 
+
+ 
+Song Wanzhuo momentarily felt guilty and showed a reluctant expression. "Ah, you don’t understand. You’re too far away. When I was in that position, I could smell her sweet fragrance every time she made a big movement."
+ 
+
+ 
+"…"
+ 
+
+ 
+The agent looked at his expression and thought he didn’t seem to have just smelled her fragrance.
+ 
+
+ 
+He looked as if he had been bewitched, seriously affected.
+ 
+
+ 
+That night, a reporter indeed asked him. The question was subtle; the reporter mentioned that there were many comments in the live stream about him constantly looking at Tong Zhao. Was that true?
+ 
+
+ 
+Song Wanzhuo cleared his throat and explained seriously, "That’s because everyone watching us collaborate just wants to reminisce about ‘Ming Emperor’. When I was singing, my mindset shifted to that of the Ming Emperor; it was the Ming Emperor who wanted to see the empress, not me."
+ 
+
+ 
+Reporter: ???
+ 
+
+ 
+We totally believe you!
+ 
+
+ 
+On Tong Zhao’s side, things were much more normal. Just as she was waiting for a reporter to ask her if she would consider acting in a palace drama, she said, "Everyone has too fixed an impression of me. You can check out my upcoming show, ‘One Life Survivor’, where you’ll see a different side of me, and it’s quite charming."
+ 
+
+ 
+[Zhao Zhao's advertising seems a bit stiff, but she’s pretty, so I forgive her.]
+ 
+
+ 
+[Wow, that’s a hard sell!]
+ 
+
+ 
+There were also some clueless onlookers: [How different can it be? But I really want to see such a delicate and beautiful ancient-style beauty~]
+# Chapter76
+The gala is a battleground fiercely contested by TV stations.
+ 
+
+ 
+Each station is gearing up to compete for ratings, preparing meticulously during the buildup, with a shining list of preview programs rolling by alongside the names of stars and celebrities, accompanied by lively and intense music, aiming to leave a memorable impression on viewers so they tune in at the right time.
+ 
+
+ 
+Higher ratings mean that advertising slots can be sold at even higher prices.
+ 
+
+ 
+Riding the tailwind of the recent airing of "Heartless Tribulation," Tong Zhao is still the most impressive female star this season, and many people are looking forward to her appearance in historical costume. When the audience learned that she would attend the Li Zhi TV gala in traditional attire, many became interested and switched to Li Zhi TV, eager to relive the essence of the Mu Xian Chang.
+ 
+
+ 
+Instead of seeing the proud plum blossom against the snowy mountains, they were greeted with a vibrant and blooming begonia.
+ 
+
+ 
+The audience was immediately stunned.
+ 
+
+ 
+Then, as soon as Tong Zhao started to sing, they could no longer bear to change the channel.
+ 
+
+ 
+Her voice was genuinely enchanting; when she sang ancient-style love songs, it was especially captivating.
+ 
+
+ 
+Tong Zhao resembled a beautiful courtesan used to singing melodious verses for the emperor, each syllable teasingly dancing like fingertips painted with rouge against the chest, leaving the audience feeling a delightful tingling sensation. Could viewers experience such imperial-level enjoyment on other channels?
+ 
+
+ 
+No, it was unique—no one wanted to change the channel!
+ 
+
+ 
+Many viewers watched the gala like this—constantly flipping channels, glancing at this show and that, until they became entranced by one program, while more often than not, no program could hold their attention. Aside from the segments featuring their idols, they merely skimmed through everything else, as if they had seen it all and yet had seen nothing at all.
+ 
+
+ 
+However, with a single note and a charming smile, Tong Zhao captivated the attention of this group of fickle admirers.
+ 
+
+ 
+[Help, this isn't the Mu Xian Chang I wanted to see.]
+ 
+
+ 
+[But it's so engaging! Can that guy next to her just let her shine? Let my wife be the only beauty.]
+ 
+
+ 
+[Don’t pull her down; their relationship is really good.]
+ 
+
+ 
+[The immersion is strong; when Zhao Zhao smiles at me, I feel like I'm the emperor!]
+ 
+
+ 
+As a result, the ratings for the Li Zhi TV gala skyrocketed.
+ 
+
+ 
+It surged in a unique way, with particularly high retention rates during their duet.
+ 
+
+ 
+The number of comments mentioning Tong Zhao far exceeded those for Song Wanzhuo, highlighting the stark contrast between the strong female lead and the weaker male counterpart, which was a bit lamentable.
+ 
+
+ 
+This data couldn’t be hidden. When the gala supervisor at Li Zhi TV saw this—
+ 
+
+ 
+Wow, Little Sister Zhao is definitely going to demand a higher price next year.
+ 
+
+ 
+They should really pat themselves on the back for having the foresight to invite her this time; the only regret is not placing her in the prime time slot. It was aired too early; if it had been during peak viewing hours, she would have surely overshadowed the competition on other channels!
+ 
+
+ 
+When analyzing the profits, the industry’s eyes became incredibly sharp. People began to murmur about how Tong Zhao is explosive in everything she does. Could she really be the so-called "Ziweixing" of the entertainment industry? After making a splash in a drama with a high-end supporting role, her movies keep getting hotter, and the variety show "Sea King Kill" has attracted significant attention. Now she’s taking the stage at the gala… great, she’s outshining everyone!
+ 
+
+ 
+The benefits brought by Tong Zhao were too obvious.
+ 
+
+ 
+A simple and brutal logic chain was deeply etched in the minds of the executives of various TV stations and brands—
+ 
+
+ 
+The audience loves watching Tong Zhao, and Tong Zhao has a lot of buzz. Whatever she shoots becomes a hit—
+ 
+
+ 
+No matter how much she charges, booking her is a guaranteed profit!
+ 
+
+ 
+In the undercurrents, her worth has risen another level—
+ 
+
+ 
+This status will hold until her next stumble.
+ 
+
+ 
+The industry is now focused on the edited version of "One Life Survivor," which will air tomorrow. Coincidentally, aside from needing to purchase viewing rights for the holographic version online, the exclusive broadcast rights for the traditional version belong to Li Zhi TV, indicating that the station has a good relationship with Tong Zhao.
+ 
+
+ 
+Is this Tong Zhao achieving new heights in the variety show realm, or is it a repeat of a failure?
+ 
+
+ 
+The backstage staff of "One Life Survivor" were moved to see her advertising their show at the gala and went wild, enthusiastically supporting her in their WeChat group.
+ 
+
+ 
+What does it mean to be dedicated? This is what dedication looks like!
+ 
+
+ 
+After the gala, during Tong Zhao's short holiday, she lounged at home with nothing to do, flipping through scripts every day and watching with her other personalities, checking if there was something she wanted to perform, especially the female reporter. She had been awake for so long and hadn’t appeared yet.
+ 
+
+ 
+Han Zhi: “Shu Yi is suitable for more nuanced, serious dramas, but they often get good reviews without box office success.”
+ 
+
+ 
+The female reporter’s name is Shen Shu Yi.
+ 
+
+ 
+The mission of the female reporter is to deliver three valuable news articles. The first is about the sentiments of a smaller nation caught between two warring superpowers, promoting anti-war sentiments. The second is about the East's indiscriminate whaling and the need for environmental protection. The last one focuses on the female soldiers who have been overlooked in history during wartime, reporting on their sacrifices and struggles in defending the homeland, highlighting that their sacrifices are equally heroic and detailing the hardships faced during their campaigns.
+ 
+
+ 
+This can be considered a more meaningful and profound world that Tong Zhao has experienced.
+ 
+
+ 
+Female Reporter: "The film I made might not sell well; it’s too dark. Let Zhao Zhao develop further."
+ 
+
+ 
+She said softly.
+ 
+
+ 
+At that time, Shu Yi submitted her first news article, which moved many people and contributed significantly to the systematic recognition of the two countries' ceasefire. However, she inevitably fell into a depression, which worsened over time until she completed her mission, temporarily sealing away the memories of this world to recuperate.
+ 
+
+ 
+The more she confronted the vast amounts of pain, the more she felt her own insignificance.
+ 
+
+ 
+So sometimes she would forget her own name, becoming a tool for documenting the suffering of others.
+ 
+
+ 
+Tong Zhao comforted her: "It’s okay; it’s not like you have to use box office sales to pay rent. Just relax and stay in my mind."
+ 
+
+ 
+Duan Ge: "Let’s take a look at other scripts."
+ 
+
+ 
+Just as she was flipping open the next one, Tong Zhao received a voice message from the Ze Shan WeChat group.
+ 
+
+ 
+This group is incredible; every day there are tons of messages, half work and half fun. Tong Zhao was puzzled about how they managed to find the information they wanted from it. In any case, as long as it didn't hinder their work, she let them be. Any important updates would be sent to her privately, and she would occasionally check in to see what they were chatting about, which usually revolved around eating, drinking, and having fun.
+ 
+
+ 
+Sometimes Tong Zhao would doubt that this group gathered the most hedonistic people in the city.
+ 
+
+ 
+What was this voice message about?
+ 
+
+ 
+As soon as she clicked in, her friends noticed her profile picture had appeared and immediately cheerfully called out to her: "Sister Zhao, Boss Wei is organizing a movie screening! Are you coming?"
+ 
+
+ 
+"A movie screening? What are we watching?" she asked, even more confused.
+ 
+
+ 
+For this group of people, a movie screening was far too subdued.
+ 
+
+ 
+Racing dirt bikes in an off-road vehicle park suited their style much better, especially if it could be done in a rainstorm during a typhoon, giving off that melodramatic feel reminiscent of "Thunderstorm."
+ 
+
+ 
+"'One Life Survivor' is airing tomorrow, right? Let’s watch it together!"
+ 
+
+ 
+"……"
+ 
+
+ 
+They seemed quite enthusiastic.
+ 
+
+ 
+Tong Zhao: "Okay. Send me the address. Is it still at Wei's place?"
+ 
+
+ 
+"Yes, yes, yes."
+ 
+
+ 
+"Sister Zhao has to come!"
+ 
+
+ 
+"Does this count as a large figurine that can talk and walk…"
+ 
+
+ 
+"Tonight, we’re all fans of Sister Zhao!"
+ 
+
+ 
+The voice messages were particularly lively.
+ 
+
+ 
+Though they said it would be at Wei's, the address had changed.
+ 
+
+ 
+Another second-generation girl said they wanted to have a barbecue by the beach this time, so they switched to a mansion under the Wei family that had a private beach.
+ 
+
+ 
+This group of friends became Tong Zhao’s true companions after her return. No matter how childish their invitations were, as long as she could spare the time, she would attend. She promptly scheduled an appointment on her calendar; no other activity invitation mattered.
+ 
+
+ 
+It was only when she was playing with them that Tong Zhao truly felt she was living among people.
+ 
+
+ 
+The movie screening ultimately turned into a semi-swimwear party.
+ 
+
+ 
+The men wore swim trunks and the women wore bikinis. Tong Zhao, following the local customs, wore a swimsuit, but she still had the most fabric on among the attendees.
+ 
+
+ 
+From the front, she appeared in a snow-white lace-trimmed dress with a sheer camisole and a short skirt, while the back featured several straps tied into a bow. She looked ethereal and cute, perfectly matching her fresh and charming appearance.
+ 
+
+ 
+This movie screening didn't have any parents present. The second-generation crowd brought their girlfriends along, all of whom were little stars that Tong Zhao couldn’t name. When she nodded at them, they displayed expressions of being flattered and starstruck, which felt even more rewarding than receiving a kiss from a rich boyfriend.
+ 
+
+ 
+Tong Zhao felt that her time in the industry wasn’t very long, but among her contemporaries and newcomers, she was seen as a star of destiny.
+ 
+
+ 
+It was impossible to secretly ride her coattails.
+ 
+
+ 
+If you offended Sister Zhao and this group of second-generation kids, you wouldn't gain any popularity and would likely end up getting sidelined. A hard-won wealthy boyfriend might even ditch you.
+ 
+
+ 
+So at least they could share some good fortune!
+ 
+
+ 
+Then Tong Zhao noticed that there was a professional chef helping the young ladies and gentlemen with the barbecue. These beautiful girls personally grilled chicken wings and beef tongue and brought them to Tong Zhao. They also had the inside scoop that she would be coming today, so they prepared some small cakes in advance.
+ 
+
+ 
+To be honest, the food was quite tasty...
+ 
+
+ 
+The girls’ affection and kindness felt genuine; there were no malicious palace intrigue tricks involved.
+ 
+
+ 
+Thanks to their enthusiasm, Tong Zhao's mouth was constantly busy. She found it curious: “Why are you only grilling for me?”
+ 
+
+ 
+Lu Shao was one of the second-generation kids, looking at his Sister Zhao with a pitiful expression.
+ 
+
+ 
+The second-generation kids she associated with didn’t disrespect girls; even the small-time influencers who sought to benefit from their relationships were no different.
+ 
+
+ 
+The young lady seemed a bit shy: “I have an audition next week and want to ride on Sister Zhao’s good luck.”
+ 
+
+ 
+“Me too!”
+ 
+
+ 
+“If it weren't impolite, I would have wanted to bow to Sister Zhao.”
+ 
+
+ 
+“…”
+ 
+
+ 
+So, it turns out that these chicken wings and small cakes are offerings.
+ 
+
+ 
+Tong Zhao found it amusing and took her hand, intertwining their fingers as she said, “Come on, I’ll share some good luck with you.”
+ 
+
+ 
+Tong Zhao was joking, but the other girls clearly took it seriously. They eagerly wanted to hold her hand, and it wasn’t until all the girls had held her hand that it was over. After soaking up the good luck, they were taken away by their boyfriends to play beach volleyball. Tong Zhao didn’t want to get in the water, so she applied sunscreen and lay down under a sun umbrella, enjoying the food grilled by the beautiful young ladies.
+ 
+
+ 
+Wei Zekai plopped down next to her, fuming, “They shouldn’t have brought their girlfriends!”
+ 
+
+ 
+“I think they’re all pretty normal girls. Why didn’t I know you were misandrist?” Tong Zhao wondered.
+ 
+
+ 
+“I’m not misandrist. Why would I be?!”
+ 
+
+ 
+Wei Zekai raised an eyebrow in confusion, revealing his true thoughts: “They were surrounding you just now, and I couldn’t squeeze in.”
+ 
+
+ 
+Tong Zhao turned over in her lounge chair and smiled at him: “Do you also want to ride on my good luck? No way; your luck is already one in a billion. Wanting even more good fortune would be greedy.”
+ 
+
+ 
+“They grilled so much food for you; you must be full now. I was going to grill some for you too.”
+ 
+
+ 
+It was clear that Young Master Wei had a distorted view of his own position.
+ 
+
+ 
+Tong Zhao recalled Wei Zekai's cooking skills during "Sea King Kill" and thought that being full wasn't necessarily a bad thing. She chuckled and ruffled his gray hair. He had been so busy with venture capital that he hadn’t had time to play around, but he had still managed to get a stylish gray hairstyle, calling it “turning gray overnight for the company.” “I’m full, but you’re not, right?”
+ 
+
+ 
+Wei Zekai replied, “I’m just filled with anger.”
+ 
+
+ 
+Tong Zhao asked, “Then you can’t eat what I grilled?”
+ 
+
+ 
+Wei Zekai smirked, “All of a sudden, I can.”
+ 
+
+ 
+Young Master Wei's principles were as fragile as paper, bending at the slightest breeze.
+ 
+
+ 
+Tong Zhao got up from her lounge chair. She was too lazy to grill anything that took a long time, so she just tore open a bag of Rocky Mountain marshmallows, threaded them onto sticks, and slowly roasted them over the grill. She was a pro at roasting marshmallows, perfectly controlling the heat so that the inside melted into a gooey mess while the outside had a dry, sweet crust, reminiscent of a candy skin. It was easy to pinch with two fingers, giving the marshmallow a "striptease."
+ 
+
+ 
+Wei Zekai looked at her with disdain, “That looks really sweet.”
+ 
+
+ 
+“Eat it or don’t.”
+ 
+
+ 
+Tong Zhao pinched out a perfectly roasted marshmallow and shoved it into his mouth. He immediately opened up like a little sea lion being fed, obediently taking a bite.
+ 
+
+ 
+The roasted marshmallow tasted even sweeter and was sticky. It quickly stuck to Young Master Wei's mouth, who was usually full of talk and chatter.
+ 
+
+ 
+The group playing volleyball on the beach turned to witness this scene, with a little influencer gasping and covering her face, “Is Wei Zekai really dating Sister Zhao? I won't tell anyone! But it's kind of sweet.” Her words were laced with envy.
+ 
+
+ 
+Second Generation A: “Huh? Dating?”
+ 
+
+ 
+Second Generation B: “Do you think they look like a couple?”
+ 
+
+ 
+Just then, Tong Zhao finished roasting another stick of marshmallows to “refill” him.
+ 
+
+ 
+Both the feeder and the fed were quite skilled, taking turns to eat one marshmallow at a time.
+ 
+
+ 
+Second Generation C asked, “What should we call this? The joys of family?”
+ 
+
+ 
+Second Generation D chimed in, “The Queen and her dog?”
+ 
+
+ 
+The group of second-generation kids responded in unison, “Wow, that’s spot on!”
+ 
+
+ 
+“…”
+ 
+
+ 
+The pretty girls didn’t quite understand the thought processes of these second-generation kids.
+ 
+
+ 
+After finishing their volleyball game, everyone took showers in the luxurious mansion and comfortably lounged in the screening room, munching on popcorn and enjoying their sugary drinks while waiting for the show to start. The opening featured a segment that gave off a strong cyber-game vibe, and many of the casual viewers drawn in by Tong Zhao were instantly confused:
+ 
+
+ 
+[Is this an apocalypse movie? It doesn’t seem suitable for Tong Zhao.]
+ 
+
+ 
+[Anyone who says it’s not suitable for Tong Zhao clearly hasn’t seen “Countdown 72 Hours.”]
+ 
+
+ 
+[Friends from the Li Zhi TV gala, give me a thumbs up! I’m your organization!]
+ 
+
+ 
+The comments flooded the screen, all asking about Tong Zhao.
+ 
+
+ 
+She hadn’t even appeared yet, but her presence was already overwhelming.
+ 
+
+ 
+Next, Tong Zhao made her entrance. The editing showcased a scene of her stepping out from crumbling ruins, her pale, well-defined legs hidden within military boots, which accentuated their elegant shape. The camera panned upwards, and some quick-thinking audience members turned off the comments to avoid being overwhelmed by a flood of compliments that would obscure Tong Zhao’s beauty.
+ 
+
+ 
+She really looked stunning.
+ 
+
+ 
+In the darkness, Tong Zhao felt many pairs of eyes turning to look at her: “What are you looking at? Watch the show!”
+ 
+
+ 
+“It’s obvious that she looks beautiful on camera, but she’s even more stunning in person.” One of the internet celebrity girls spoke with a slightly downcast tone, but it was a heartfelt compliment.
+ 
+
+ 
+How can anyone else live when she’s this beautiful?
+ 
+
+ 
+She really does seem to come with a beauty filter built in.
+ 
+
+ 
+Wei Zekai nodded in agreement, “Absolutely.”
+ 
+
+ 
+“You're all praising me like I’ve paid you to do so.”
+ 
+
+ 
+Tong Zhao felt helpless as Wei Zekai leaned closer, and she lightly tapped his head.
+ 
+
+ 
+The production team initially thought the popularity gained from the Li Zhi TV gala would be fleeting, especially since the contrast in her image was so stark. People were expecting a glamorous and enchanting queen, only to find a cold, ruthless assassin instead. The audience demographics were completely different.
+ 
+
+ 
+However, according to the backstage data, these viewers hadn’t left.
+ 
+
+ 
+They continued watching.
+ 
+
+ 
+The staff couldn’t quite grasp that these viewers were not merely fans of glamorous beauties; they were senior members of the “appearance association,” and all beings were equal. Yet this equality was exclusive to good-looking people.
+ 
+
+ 
+The edited version had a brisk pace. It started with the Sun Squad searching for supplies in a McDonald’s, then hinted that the Cloud Squad was about to arrive. After establishing the physical positions of the two teams, the camera immediately zoomed in on Tong Zhao from a high angle.
+ 
+
+ 
+Just the scene where she cut her long hair sparked a flurry of excited comments:
+ 
+
+ 
+[So cool!]
+ 
+
+ 
+[Sister, your short hair looks great too! Consider going this route next time?]
+ 
+
+ 
+[I’ll never ask to see Tong Zhao in ancient costumes again; let’s have some workplace dramas! I want to see short-haired Zhao!]
+ 
+
+ 
+Tong Zhao's first parkour segment was accompanied by the background music “Sold Out.” She navigated through high-rise buildings, cutting out unnecessary shots, with a quick and uplifting rhythm that stirred the audience's emotions. The powerful beat accompanied each difficult combination of moves, reaching a small climax as she leapt between two buildings.
+ 
+
+ 
+What a fantastic visual treat!
+ 
+
+ 
+No wonder they say Tong Zhao is a star who brings the excitement with her.
+ 
+
+ 
+Who can perform such moves in instinctive variety shows? Who can? No one in the industry would dare claim they could, and Tong Zhao didn’t boast about her abilities in advance either. She effortlessly showcased a classic segment, as simple as picking up chopsticks.
+ 
+
+ 
+There are already comments saying Tong Zhao's escape scene could be accompanied by “Hit and Run.”
+ 
+
+ 
+Viewers who hadn't paid attention to the live broadcast were like explorers discovering a new continent. They eagerly spread the word on Weibo, in their friend circles, and on any social platform they could reach, practically bursting to tell everyone they had found a treasure of a star, especially among male viewers:
+ 
+
+ 
+[Yooooooo! So cool!]
+ 
+
+ 
+[Have you ever seen a female star in domestic entertainment who can parkour? Her core strength is insane.]
+ 
+
+ 
+[Tong Zhao, YYDS (forever a legend)!]
+ 
+
+ 
+Some male viewers weren’t as sleazy as the stereotypes suggest; sometimes they were quite innocent. Seeing an enormous, moving robot excited them, and now seeing Tong Zhao filled them with the same thrill. She was just too cool, and they felt they had to share their excitement with friends to calm down.
+ 
+
+ 
+At this moment, her companions all turned to look at her at once.
+ 
+
+ 
+Their eyes were filled with the expectation of “Can you show us that?”
+ 
+
+ 
+Tong Zhao: “...No, I can't.”
+ 
+
+ 
+Tong Zhao: “Now that you want to see me parkour, when you see me fight four opponents later, do you want me to show off then too?”
+ 
+
+ 
+Just then, the big screen displayed Tong Zhao lurking in the shadows, waiting for the right moment to strike.
+ 
+
+ 
+As the Sun Squad escaped and the Cloud Squad was about to chase after them, the screen paused for a moment, surrounded by a red glow.
+ 
+
+ 
+“Warning: High Energy Ahead!”
+ 
+
+ 
+“Summoning Barrage for Protection!”
+ 
+
+ 
+“Friends who are scared, put up your defenses on the screen!”
+ 
+
+ 
+Next came the scene where Tong Zhao fought four opponents, shocking the unprepared ordinary viewers to the core.
+ 
+
+ 
+[Is this even real??????]
+ 
+
+ 
+[Holy crap, this feels crazier than a movie! How is her performance even more intense than Feng Yanqi's?]
+ 
+
+ 
+[The key is that she doesn’t seem nervous or afraid at all. I suspect she has high-functioning antisocial personality traits.]
+ 
+
+ 
+Director Chen knew that the highlight of the entire variety show was Tong Zhao. Whenever she performed, he put all his efforts into editing. Take this segment of her fighting four opponents as an example: the original footage might have been less than three minutes long, but they held a two-hour high-intensity meeting to brainstorm. Almost every shot was examined carefully to figure out how to make it perfect.
+ 
+
+ 
+Their hard work paid off; the released segment indeed had an exceptional effect.
+ 
+
+ 
+Not only were Tong Zhao's combat intentions clearly conveyed, but she was also filmed beautifully, rivaling serious action movies.
+ 
+
+ 
+Professionals look at the technique, while amateurs look at the effect.
+ 
+
+ 
+Just this one segment could hold the attention of shocked viewers for at least fifteen minutes—this is how the film and television industry works. Content must be meticulously crafted; otherwise, why would viewers choose to spend their precious time watching it? Programs that attempt to deceive the audience will be abandoned, and the opposite is true as well.
+ 
+
+ 
+These fifteen minutes showcased the clashes of the other two teams, and just when the program estimated the audience's patience was about to run out, it immediately threw Tong Zhao into the spotlight to captivate the viewers.
+ 
+
+ 
+As Tong Zhao exchanged three bags of Master Kong instant noodles, the noodles still lacking seasoning packets, the comments on the screen erupted with laughter, sounding like pig squeals.
+ 
+
+ 
+Quick-fingered netizens quickly posted on Weibo, sharing meme templates:
+ 
+
+ 
+[Tong Zhao looking dumbfounded.jpg], [Are you serious.jpg], and [Tong Zhao looking humble.jpg] were all too useful. Some viewers used these adorable emojis to lure newcomers into the fandom, spreading like a viral sensation. This time, the viewing threshold was lower than during the 24-hour live stream, leading to a rapid increase in the number of new viewers on Weibo.
+ 
+
+ 
+As they poured in, the show had just reached the part where the Sun Squad and Thunder Squad returned to McDonald's, only to find a battlefield littered with corpses.
+ 
+
+ 
+A huge special effects banner floated across the screen:
+ 
+
+ 
+“Tong Zhao’s Carefully Crafted Work~~~~”
+ 
+
+ 
+Ah, this.
+ 
+
+ 
+Where’s the promised cute and silly girl?
+ 
+
+ 
+This is way too brutal!
+ 
+
+ 
+An interesting discussion thread appeared on a certain entertainment forum: “Is Tong Zhao Really Silly and Cute?”
+ 
+
+ 
+A user on the first floor concluded the thread: [Newcomers who fell for Tong Zhao's supposed silliness are the most naive…]
+ 
+
+ 
+The guests began a serious round of deduction, giving the audience a big sense of intellectual superiority. Watching film and television works is sometimes thrilling precisely because of the god's perspective, allowing viewers to point and comment on the characters in the show.
+ 
+
+ 
+At that moment, the camera zoomed up to the edge of the rooftop of a tall building.
+ 
+
+ 
+Tong Zhao sat at the edge of the rooftop, gently swinging her legs—
+ 
+
+ 
+[Tong Zhao seems like an elf that has descended to Earth.]
+ 
+
+ 
+[An elf that can kill an entire family?]
+ 
+
+ 
+[Well, when she’s not making a move, she’s still very obedient.]
+ 
+
+ 
+This episode abruptly ended when she spotted the Thunder and Sun squads.
+ 
+
+ 
+As the screen went black, the audience, who had been discussing the variety show, suddenly erupted in disappointment, all exclaiming that they hadn’t had enough. "What happened next? There’s nothing more?! We have to wait until the day after tomorrow? We don’t want to wait!"
+ 
+
+ 
+A small portion rushed to watch the 24-hour recorded version, but most decided to wait for the second episode in two days.
+ 
+
+ 
+In any case, this variety show was definitely going to be followed!
+ 
+
+ 
+The production team had no money to buy trending searches, so they could only do their best to edit the original footage into something more exciting and appealing. Fortunately, they delivered a high-quality product, and Tong Zhao also contributed to the corresponding buzz—three related topics suddenly appeared on the trending list, each one featuring her name prominently. Savvy netizens noted that this show not only featured individual survival but also relied on her to carry the ratings.
+ 
+
+ 
+What everyone was most curious about was where Tong Zhao acquired so many bizarre skills.
+ 
+
+ 
+If you say she can sing and play instruments?
+ 
+
+ 
+That’s normal; Tong Zhao comes from a good family, even if she encountered a bad father and a mistress.
+ 
+
+ 
+If you say she knows martial arts?
+ 
+
+ 
+Well… that could be somewhat acceptable. It’s part of traditional culture, good for health, nothing to be embarrassed about.
+ 
+
+ 
+But what Tong Zhao clearly knows is the art of killing!
+ 
+
+ 
+Who could develop such skills without training in a special forces camp for several years? The key lies in her mindset during that one-against-four situation—most people simply don’t possess that. Even those in special professions don’t have it. Moreover, due to her family's involvement in the gray market and their dark lineage, there are already discussions on Zhihu about her identity as a daughter of the underworld…
+ 
+
+ 
+The level of discussion was astonishingly high, so her manager, Sister Chu, suggested that she consider responding.
+ 
+
+ 
+Recollections?
+ 
+
+ 
+That meant she needed to come up with an excuse to brush it off…
+ 
+
+ 
+She couldn’t just say she practiced by killing zombies, could she?
+ 
+
+ 
+Duan Ge: “Actually, I’ve killed people too.”
+ 
+
+ 
+In the apocalypse, in order to protect certain vulnerable female characters, her hands were stained with blood. Sometimes, Duan Ge would feel that some living people were scarier than zombies.
+ 
+
+ 
+Tong Zhao: “Stop, I don’t really want to recall that.”
+ 
+
+ 
+After thinking for a moment, Tong Zhao decided to go live on Bilibili, which the company had registered for her—her first stream in ages.
+ 
+
+ 
+It was a gaming livestream.
+# Chapter77
+After adjusting the camera, Tong Zhao posted a message on Weibo:
+ 
+
+ 
+@TongZhaoV:
+ 
+
+ 
+Streaming for a bit. [Bilibili stream link]
+ 
+
+ 
+[Is Sis doing a live stream? Why not on Weibo?]
+ 
+
+ 
+[Feels like the dimension wall has been broken...]
+ 
+
+ 
+[Zhao's become a mature streamer, already knows how to promote herself!]
+ 
+
+ 
+The first episode of ‘One Life Survivor’ had just aired, and the audience was left wanting more. A bunch of "variety show refugees" were venting their excitement on Weibo, forums, Zhihu, and their social media feeds. Many were even leaving confessions under her previous Weibo posts. In short, there were plenty of netizens lurking under her posts, and when a new one popped up, they excitedly rushed to comment in the first row.
+ 
+
+ 
+But refreshing it? Well, no chance of being in the first row now.
+ 
+
+ 
+With one refresh, thousands of comments had already flooded in!
+ 
+
+ 
+Following the link Tong Zhao provided, fans clicked into the stream, expecting to be visually stunned by her beauty. However, they found that her face only took up a small corner of the screen, about the size of a palm in the bottom right. Tong Zhao was sitting in a pink bunny-themed gaming chair, her hair tied loosely in a bun. Her pair of beautiful almond-shaped eyes weren’t looking at the camera but at something ahead—likely her computer screen.
+ 
+
+ 
+She was very focused.
+ 
+
+ 
+No distracted smiles for the audience, nor any seductive glances like at the gala.
+ 
+
+ 
+Yet even without filters, her well-defined features easily outshone a whole district of female streamers.
+ 
+
+ 
+She's too beautiful, making people sigh in awe. No wonder she's a celebrity; she's on a completely different level from internet influencers. When on the same platform, it feels like she's effortlessly outshining them. However, this dominance isn't as noticeable on Bilibili, where many viewers are fans of virtual streamers, which has led to memes like "[VTB Simps Are Among Us.jpg]".
+ 
+
+ 
+“Ah, it’s all set,” she said.
+ 
+
+ 
+As soon as she spoke, the screen of Tong Zhao's computer appeared in the livestream.
+ 
+
+ 
+It was a game.
+ 
+
+ 
+Specifically, ‘PUBG’, which is popular worldwide. The male character on-screen looked quite flashy, wearing a leopard-print face scarf and a Leather Hoodie jacket—clearly an expensive outfit. Tong Zhao not only plays games but plays them well. Part of it is due to often playing with Wei Zekai in the past, but another part is her natural talent.
+ 
+
+ 
+In many ways, Tong Zhao is a bit of a polymath.
+ 
+
+ 
+Otherwise, how could she repeatedly succeed in clearing different worlds in the fast-travel genre?
+ 
+
+ 
+Even though she plays well, Tong Zhao rarely spends money on in-game purchases. This outfit was part of a “team uniform” that Wei Zekai had bought for their group. The black-clad look was just his style, exuding an air of wealth. He’s the type of person who, in ‘CS:GO’, would wield a brand-new blue-flamed karambit knife paired with a dragon-themed sniper rifle, flaunting his financial prowess.
+ 
+
+ 
+Fans and viewers were stunned.
+ 
+
+ 
+What was happening?
+ 
+
+ 
+Tong Zhao streaming a game? And it's ‘PUBG’?
+ 
+
+ 
+The information overload left the audience a bit overwhelmed.
+ 
+
+ 
+Tong Zhao started a match right away and casually chatted with viewers during the loading time: "I saw a lot of people discussing why my instinctive shooting skills seem so good, and why I stay so calm. I figured I'd show you all in action and clear up the confusion."
+ 
+
+ 
+After she explained, the viewers were even more puzzled.
+ 
+
+ 
+The chat was flooded with questions:
+ 
+
+ 
+[Zhao Zhao, what does playing games have to do with instinctive shooting skills?]
+ 
+[Sis, are you trying to say you honed your shooting skills from playing PUBG?]
+ 
+[I don't believe it! There's no way this theory is true! The forum pros can't be right!]
+ 
+
+ 
+The so-called bragging from forums like Tieba and Zhihu, if all of it were true, China would have unified the world by now. Some overconfident kids talk big on forums, citing their achievements in shooting games, fantasizing that if they were on a real battlefield, they'd definitely dominate.
+ 
+
+ 
+Of course, that's impossible.
+ 
+
+ 
+In reality, the recoil from a real gun would be enough to humble these kids who can barely lift a grocery bag.
+ 
+
+ 
+The live-streaming site Tong Zhao picked was well-suited for this kind of crowd. The viewers in the comments were savvy and started playing along with the jokes.
+ 
+
+ 
+[Everyone shut up! You can't compare everyone's physical ability the same way. Zhao Zhao once took on eleven strong men by herself in a fit of extreme rage.]
+ 
+[So what? I became her fan the day she slid tackled a tiger to death. That move was legendary.]
+ 
+[Totally normal. Do you know why American soldiers are so tough? They train by playing PUBG on Steam with pro gamers. Their coordination comes from playing ‘Human: Fall Flat’, and their strategic backstabbing from ‘Fall Guys’.]
+ 
+
+ 
+Tong Zhao glanced at the chat and was amused.
+ 
+
+ 
+When she smiled, the slight upward curve of her eyes gave off an unconscious hint of allure.
+ 
+
+ 
+Whoa.
+ 
+
+ 
+Beauty attack!
+ 
+
+ 
+Viewers started begging for the camera feed to be enlarged, asking if the mods could zoom in on her face.
+ 
+
+ 
+But that wasn’t happening—Tong Zhao was seriously focused on streaming her game.
+ 
+
+ 
+“Hello? Hello? Is the random teammate a guy or a girl?”
+ 
+“Damn, it’s hilarious that we have to fill our squad with randoms because Nan Nan bailed last minute.”
+ 
+
+ 
+"He’s talking nonsense again, probably watching a virtual streamer."
+ 
+
+ 
+From just these few words, it was clear that the three random teammates had originally intended to play as a four-person squad, but one of them bailed last minute, leaving a spot open for Tong Zhao to fill.
+ 
+
+ 
+Upon hearing the male voice in the game, her fans in the livestream immediately felt a mix of excitement and jealousy.
+ 
+
+ 
+Playing a game with Tong Zhao?!
+ 
+What kind of godly luck was that? Incredible.
+ 
+
+ 
+Many comments were saying that if they could duo with Tong Zhao, they’d pay any amount of money for it.
+ 
+
+ 
+“I accidentally queued into a four-player squad…”
+ 
+
+ 
+Tong Zhao said, “You don’t need to spend money to play with me. If you get matched with me, we’ll play together.”
+ 
+
+ 
+But the reality is, who’s going to get matched with her?
+ 
+
+ 
+With her current level of fame, she could indeed make such a statement—after all, if playing with her had a price tag, that would be more like a paid companion, which would feel beneath her. Fans may joke about paying to play, but deep down they wanted their idol to be priceless.
+ 
+
+ 
+Meanwhile, the three male players, unaware that they were the target of thousands of people's envy, kept joking around: “How could we be so lucky to get a girl on our team? A girl solo-queuing in a four-player squad? Not having a protector is just unscientific!”
+ 
+
+ 
+Tong Zhao hadn’t turned on her in-game mic, only speaking to the viewers: “I accidentally queued for a squad game, so I’ll just play solo for now. I’ll only talk if communication becomes necessary.”
+ 
+
+ 
+After a brief pause, she added:
+ 
+
+ 
+“I haven’t played much this season, so the difficulty of the match will be lower. I won’t need to talk.”
+ 
+
+ 
+As long as one member of the team survives until the end, the whole squad wins.
+ 
+
+ 
+“Why won’t you need to talk?”
+ 
+
+ 
+Tong Zhao smiled lightly and said casually, “Because I play pretty well.”
+ 
+
+ 
+The viewers at that moment had no idea that this game was about to redefine what “playing pretty well” meant…
+ 
+
+ 
+The flight path was from the airport to the upper city. While on the plane, Tong Zhao quietly listened to her three teammates chatting via voice.
+ 
+
+ 
+Player 2 was giving instructions: “Let’s head to Novo to scavenge. There won’t be many people up there since the flight path is away from it. We’ll loot and see what happens next.”
+ 
+
+ 
+The other two responded with a chorus of "yeah, yeah."
+ 
+
+ 
+Tong Zhao, wanting to engage with her fans a bit, asked the viewers in the chat where they’d like to see her jump.
+ 
+
+ 
+Compared to other celebrities, she didn’t interact with her fans as frequently, which inadvertently helped her maintain a higher profile. Still, she genuinely liked and valued her fans. Handshake events weren’t her style, but she tried to make the most of opportunities to interact with them.
+ 
+
+ 
+The chat asked her to jump at the airport.
+ 
+
+ 
+She chuckled softly, “Alright.”
+ 
+
+ 
+Her soft, feminine voice, transmitted through top-tier sound equipment, caressed the ears of all the viewers.
+ 
+
+ 
+Seeing that Tong Zhao was jumping into the high-risk airport area without saying a word or communicating with the team, Player 2 started complaining: “Another silent player jumping into the airport to get killed. Looks like we’re going to have to sneak through the zone to survive again, just to scrape some points. Playing as three with a random is too tough… Next game, we’re definitely pulling Nan Nan back in.”
+ 
+
+ 
+The fans were in disbelief—how could they diss their goddess like that?!
+ 
+
+ 
+Confused comments flooded the chat, but Tong Zhao calmly replied, “No need for question marks, they’re fine. I’m the one who didn’t turn on my mic. I just wanted to chat with you all first.”
+ 
+
+ 
+Indeed, if you got matched with a random player who didn’t communicate, you’d feel annoyed too.
+ 
+
+ 
+Tong Zhao’s words soothed both the PUBG players and her biased fans.
+ 
+
+ 
+No one could stay mad after that—Tong Zhao had just said she wanted to chat with them!
+ 
+
+ 
+Because of the rich resources, if the airport is along the flight path, players typically face around 30 to 40 opponents upon landing. However, with a recent update reducing the loot at the airport, fewer people jumped there, though there were still three to four teams, about 20 players in total.
+ 
+
+ 
+...
+ 
+
+ 
+Tong Zhao’s parachute landed on the tech building, and she began searching for equipment.
+ 
+
+ 
+Surprisingly, she didn’t encounter an entire squad inside. Instead, she came across a lone player on the second floor who had been separated from his team. She quickly picked up an UMP9 and took him out with ease, then jokingly commented, “Why is there only one? Where are his teammates? Give me some action!”
+ 
+
+ 
+As soon as she made her first move, the viewers could tell she knew how to play.
+ 
+
+ 
+Many curious onlookers, who came just for the spectacle, began to wonder how well this actress could really play.
+ 
+
+ 
+“The players in this match seem like noobs. Their aim doesn’t seem great. Looks like it’s a beginners’ match,” Tong Zhao said calmly, her tone carrying a soft, amused smile.
+ 
+
+ 
+It was as if she wasn’t in a deadly battlefield, but rather playing a peaceful idle game.
+ 
+
+ 
+Some fans who didn’t understand the game were utterly charmed by how she called them "little kids."
+ 
+
+ 
+Gunshots continued to ring out nearby. When Tong Zhao arrived at the scene, she couldn’t see anyone and muttered in confusion, “It’s like they’re just shooting for fun. When I need someone, there’s no one around.”
+ 
+
+ 
+No sooner had she said this than she was shot in the back.
+ 
+
+ 
+Before the audience could react, Tong Zhao had already swiftly turned, found cover behind a door, and quickly eliminated the ambusher with a few shots. Though her health had dropped significantly, she remained unhurried: “Now his teammates will come. What should we do?”
+ 
+
+ 
+She calmly closed the door and started healing by a window without finishing off the downed player.
+ 
+
+ 
+The chat exploded with viewers urging her to finish off the enemy first, because in the game, downed players don’t die instantly if their teammates are still alive.
+ 
+
+ 
+At this point, if the ambusher's teammates rushed over and killed Tong Zhao, they could still revive the injured player.
+ 
+
+ 
+It's common sense to finish off an enemy after downing them.
+ 
+
+ 
+Of course, healing takes time, and using medicine when injured is normal.
+ 
+
+ 
+However, she interrupted her healing just after starting, without waiting for it to complete.
+ 
+
+ 
+After performing this series of seemingly confusing actions to regular viewers and low-ranked players, she explained:
+ 
+
+ 
+"When this ambusher dies, there’s a death cam that allows his teammates to see how he was killed. In that replay, they can also see my actions... If his teammates see me healing, what would they think?"
+ 
+
+ 
+"They’d probably tell their team, 'She’s low on health! She's healing near my loot box! Hurry up and kill her to revive me!' ... Something like that."
+ 
+
+ 
+"I timed it right. I jumped out the window just after their death cam ended."
+ 
+
+ 
+"To these three teammates, I probably look like some clueless newbie still healing next to the body."
+ 
+
+ 
+Just as she finished speaking, the sound of hurried footsteps grew louder.
+ 
+
+ 
+"Look, they took the bait."
+ 
+
+ 
+Tong Zhao quickly vaulted out the window, tossing a grenade back into the room. It blew up the first enemy who had jumped in from the adjacent room—let's call him Gourd Baby #1. Gourd Baby #2 then rushed in to try and revive him, while Gourd Baby #3 waited by the door, only to be stealthily taken out by Tong Zhao as she sneaked up using the shift key to move quietly. Inside, Gourd Baby #2 was desperately trying to revive his teammate…
+ 
+
+ 
+Just two more seconds, and he’d have revived his ally, turning the fight into a 2v1!
+ 
+
+ 
+However, what awaited Gourd Baby #2 was a grenade that had been cooking for two seconds.
+ 
+
+ 
+Boom!
+ 
+
+ 
+Tong Zhao chuckled at the whole situation, "Classic Gourd Babies rescuing their grandpa."
+ 
+
+ 
+In this 1v4, aside from her precise and swift takedown of the initial ambusher, Tong Zhao didn’t display any particularly impressive gunplay.
+ 
+
+ 
+In higher-level games, good aim is expected. What really makes the difference is tactical movement, positioning, use of throwables, and strategy. The skill level of her opponents in this match was relatively low, and Tong Zhao had perfectly predicted their moves, securing each kill with ease.
+ 
+
+ 
+Everything happened in the blink of an eye.
+ 
+
+ 
+"See, as long as you stay calm, a 1v4 is no big deal," Tong Zhao said.
+ 
+
+ 
+Her three teammates couldn’t see her impressive moves. All they noticed was her health bar dropping significantly. Player 2 started grumbling, "As expected, another one who won’t make it out of the airport. Doesn’t have the skills but still won’t follow commands..."
+ 
+
+ 
+But then, three knockdown notifications popped up.
+ 
+
+ 
+The same player who didn’t follow orders and supposedly lacked skill had just wiped out an entire squad.
+ 
+
+ 
+Player 3 responded, "Uh, what?"
+ 
+
+ 
+"Uh... got lucky, huh? Didn’t see that coming," Player 2 awkwardly laughed, quickly shifting the topic, "Alright, let’s keep looting!"
+ 
+
+ 
+The live chat exploded with laughter at this turn of events, with viewers mocking the players for failing to recognize a pro in their midst.
+ 
+
+ 
+Meanwhile, Tong Zhao was calmly healing in a safe spot. Her backpack, aside from essential ammo, was filled with medical supplies and throwables. "I’ve gathered enough resources. Let’s go check on what our little friends are up to," she said.
+ 
+
+ 
+The chat immediately switched from laughing to begging for attention, with many fans saying they wished Tong Zhao would call them "little friends."
+ 
+
+ 
+For once, Tong Zhao indulged them, smiling as she said, "Alright, you’re all my little friends."
+ 
+
+ 
+…
+ 
+
+ 
+Compared to the cool and collected pro, her three teammates were much more down-to-earth.
+ 
+
+ 
+Viewers listened as they cautiously looted, with Player 4 stuck debating, "Should I take the thumb grip or the vertical grip?" This indecision was too much for Player 2, the self-appointed leader, who sighed, "Whatever, I’ll go watch the bridge. Hurry up and decide!”
+ 
+
+ 
+At the bridge...
+ 
+
+ 
+Tong Zhao drove straight there.
+ 
+
+ 
+Player 2 had likely been ambushed near the bridge. In the voice chat, he shouted, "There’s someone here! I couldn’t hold them off! I’m down, I’m behind cover… Ah," realizing that his teammates were still far away, he added in a dejected tone, "Never mind, I’m done for. I can see the enemy coming to finish me off. You guys won’t make it in time."
+ 
+
+ 
+The enemy approaching to finish him off was already very close.
+ 
+
+ 
+Ten steps away.
+ 
+
+ 
+Five steps…
+ 
+
+ 
+Just at the critical moment, a gunshot rang out, followed by the sound of a bullet hitting its target. Player 2 noticed he hadn’t lost any more health.
+ 
+
+ 
+The one who got knocked down wasn’t him—it was the enemy who had come to finish him!
+ 
+
+ 
+"Whoa, who shot him? Did another team show up?"
+ 
+
+ 
+Player 2, who had narrowly escaped death, was overjoyed.
+ 
+
+ 
+But then he realized that if another team had arrived, they’d likely be after him too.
+ 
+
+ 
+Before he could finish speaking, the sound of a throwable landing next to him echoed in his ears.
+ 
+
+ 
+It wasn’t a grenade.
+ 
+
+ 
+With a ‘whoosh’, a cloud of smoke spread, like the light of an angel enveloping him.
+ 
+
+ 
+It was a smoke grenade, meant to protect him and obscure the enemy’s vision!
+ 
+
+ 
+Player 2 quickly opened the minimap and saw that the silent teammate wasn’t dead after all, and had actually come to save him!
+ 
+
+ 
+Player 2 exclaimed, "A living saint has descended right next to me??"
+ 
+
+ 
+Now that they had regrouped, it was time to open comms.
+ 
+
+ 
+Tong Zhao turned on her team mic and, at the same time, switched on a voice changer. Her usual feminine voice became a soft, gentle male tone: "There are enemies at the bridge. I’ve already knocked one. You focus on reviving your teammate. I’ll handle the rest.”
+ 
+
+ 
+As Players 3 and 4 rushed over to save him, Player 2 secretly asked his roommate in the dormitory, "Whoa, this guy is killing it so hard. He’s not using aimbot or anything, is he? What if he suddenly teleports to my face and asks me if I want to buy hacks? Or should we team up and ambush him? I want to be the one who takes down the hacker! I won’t give in for just a few points!”
+ 
+
+ 
+Before his roommate could answer, Tong Zhao asked, “Aren’t you leaving yet? The poison is coming, and there are meds and bags on the ground. If you need more, just take them.”
+ 
+
+ 
+Player 2’s eyes lit up as he activated his mic, “Oh, I’m coming right now!!!”
+ 
+
+ 
+After healing himself, he jogged over to Tong Zhao and asked, “Big brother, you’re not selling hacks, are you?”
+ 
+
+ 
+“…”
+ 
+
+ 
+Tong Zhao was speechless: “Have you ever seen a hacker share their meds, not kill you, and still let you play?”
+ 
+
+ 
+“I haven’t, I haven’t! I was wrong, big brother.”
+ 
+
+ 
+“It’s fine, let’s go.”
+ 
+
+ 
+Player 2 thought about it; usually, he was the one calling the shots and leading the team. How could he be so easily summoned and directed by her? This feeling of being a follower…
+ 
+
+ 
+It felt too good.
+ 
+
+ 
+The three of them followed this boss around excitedly, killing anyone they encountered as they walked.
+ 
+
+ 
+Mostly, Tong Zhao was the one killing; they were just there to move.
+ 
+
+ 
+She was killing so quickly that her teammates hardly had a chance to show off their skills.
+ 
+
+ 
+Player 2 was the highest-skilled among them, and after finally taking down a lone enemy, he shouted, “Look, look! I killed one trying to escape!”
+ 
+
+ 
+As soon as he finished speaking, the icon indicating that the boss had eliminated a squad appeared in the top right corner.
+ 
+
+ 
+…Okay.
+ 
+
+ 
+Players 3 and 4 were mainly providing heavy fire to pretend to be strong.
+ 
+
+ 
+Player 3 asked, “Mr. Chen, did you hit him?”
+ 
+
+ 
+Player 4: “I didn’t hit him.”
+ 
+
+ 
+Player 3: “Me neither. What do we do if we can’t hit him?”
+ 
+
+ 
+“Are you stupid? Just shoot the ground next to the tree; he won’t dare to show his head.”
+ 
+
+ 
+“Oh, right, right!”
+ 
+
+ 
+During their playful banter, as the frontline opened up, the enemy who didn’t dare to show himself was precisely taken out by Tong Zhao, who had flanked him.
+ 
+
+ 
+With the boss leading the way, they pretended to aim in the final circle, having a blast and racking up points.
+ 
+
+ 
+Another joyful day of earning points!
+ 
+
+ 
+The audience, who had been watching the entire time, was completely won over by her.
+ 
+
+ 
+If she had been playing solo, it wouldn’t have had the same effect.
+ 
+
+ 
+The key was those three clueless teammates, which gave the viewers a strong sense of immersion, as if even they were teaming up with the boss to earn points.
+ 
+
+ 
+Usually, Tong Zhao was somewhat reserved and didn’t have a very loud image.
+ 
+
+ 
+She would say what needed to be said, not a chatterbox, but also not too talkative.
+ 
+
+ 
+It might also be because there were too many talkative people around her, like Shi Qianqiu and Wei Zekai, who could carry a group chat on their own, which made her seem more efficient and concise. But fans noticed that Tong Zhao actually loved to talk and was quite interesting when she did.
+ 
+
+ 
+The live chat was filled with a sea of gifts.
+ 
+
+ 
+After the first episode of "One Life Survivor" ended, the variety show fans flooded into her livestream, creating a strong buzz. They soon discovered she was streaming a shooting game, which hit the excitement point for many male viewers—what could be more thrilling than playing a game with a goddess who was also highly skilled?
+ 
+
+ 
+Female gamers felt proud as well. Who says women can only be cute and helpless?
+ 
+
+ 
+Thinking about it this way, they genuinely started promoting her.
+ 
+
+ 
+“Thank you all for the gifts and for becoming captains and admirals,”
+ 
+
+ 
+Tong Zhao didn’t lack for popularity or gifts; she was just explaining it to herself: “In any case, my shooting skills and mindset are honed in games. I know most people can’t do it, so don’t try to learn from me. After all…”
+ 
+
+ 
+She curved the corner of her lips, tinted with a sugary hue: “People’s physiques can’t be generalized.”
+ 
+
+ 
+Wow.
+ 
+
+ 
+This mixture of truth and humor made the audience find her even more enigmatic.
+ 
+
+ 
+But a superstar needs a bit of mystery to be appealing. Following a star is about the chase; if you can grasp it and see through it, then it’s no longer a star. It’s just a meteor that fell to Earth, dragged into a lab by astronomers for study.
+ 
+
+ 
+It’s only when it’s floating in space that it’s called a star.
+ 
+
+ 
+Only those who are worthy of admiration and pursuit can be called celebrities.
+ 
+
+ 
+[Alright, you’re right, sis, we’ll listen to you.]
+ 
+
+ 
+[I’m afraid to get shot if I don’t listen/dog emoji]
+ 
+
+ 
+[I believe it, but can Sister Zhao stream for a bit longer? I was recommended here by a friend halfway through and just caught the final circle. I want to see Sister Zhao play from the beginning!]
+ 
+
+ 
+The chat was filled with pleas for Tong Zhao to keep streaming; one round just wasn’t enough.
+ 
+
+ 
+To be fair, Tong Zhao made it to the end in this round, and the duration wasn’t short, but the audience still wanted more.
+ 
+
+ 
+“Okay, let’s play another round.”
+ 
+
+ 
+“By the way, I’m not just practicing my mindset in *PUBG*; I have other games I can stream as well.”
+ 
+
+ 
+Tong Zhao opened her Steam account.
+ 
+
+ 
+Wow, she had so many games that they were almost endless.
+ 
+
+ 
+This was also thanks to Wei Zekai. It wasn't that Tong Zhao asked him to buy games for her, but rather that this heavily addicted, fleeting enthusiasm-driven teenager wanted to play every time a new game came out. Not wanting to be lonely, he wanted to invite his friends to join him, so anyone on his Steam friends list frequently received gifts.
+ 
+
+ 
+After finishing another round of ‘PUBG’, Tong Zhao also streamed games like ‘Bridge Building’, ‘Landlord’, and ‘League of Legends’.
+ 
+
+ 
+Fans went from being shocked and bombarding the chat with question marks to accepting reality, and finally to numbly spamming [66666]...
+ 
+
+ 
+Ah, their goddess's versatility was just that simple and mundane, yet somehow dry.
+ 
+
+ 
+After Tong Zhao ended her stream, bored onlookers began to comment on the stars within the industry who enjoyed playing games.
+ 
+
+ 
+After counting, they found quite a few.
+ 
+
+ 
+After all, with the rise of esports in recent years and its entry into the public eye, celebrities playing the same games as fans highlighted their down-to-earth quality. If they played well, they could attract fans, and if they were bad at the game but still addicted, it had its own charm.
+ 
+
+ 
+[...Wait, are you all really accepting that Tong Zhao's shooting skills and mindset were honed in games?]
+ 
+
+ 
+[But she’s just so strong!]
+ 
+
+ 
+[We’ve already accepted this narrative.]
+ 
+
+ 
+Some content creators were responsible for compiling the best plays from well-known streamers each week, and thus, one bizarre clip got mixed in:
+ 
+
+ 
+“Tong Zhao’s Airport Bloodbath: Locking Down a Team”
+ 
+
+ 
+Not only was the highlight reel impressive, but she also coordinated perfectly with the three random players in her first match.
+ 
+
+ 
+If they hadn’t been a last-minute match, one would think they were intentionally cast actors.
+ 
+
+ 
+Afterward, when those three male college students found out that the incredibly strong player they had teamed up with that day was Tong Zhao, they were stunned for several days and immediately changed their dorm group name to “The Three Handsome Guys Who Played With Tong Zhao,” earning the envy of everyone in school.
+ 
+
+ 
+The irony was that the girl the first male student was pursuing was a die-hard fan of Tong Zhao. She felt a strong sense of identification with him, even wishing she could become a boy just to be a fanboy. When she found out about this, her heart was filled with jealousy, and she said she never wanted to see him again, fearing she wouldn't be able to control her jealousy and might end up hitting him...
+ 
+
+ 
+It was unfair!
+ 
+
+ 
+This situation would have ended there. Tong Zhao couldn’t possibly stream games all the time, but then a scandal broke out involving the promotion of a training app in which she had invested alongside Zeshan. The app's originally planned spokesperson was embroiled in a violent scandal involving shoving his girlfriend while dating someone else.
+ 
+
+ 
+Although it hadn't reached the point of being banned, it would definitely have an impact.
+ 
+
+ 
+If the money was refunded, the promotion of the app could be delayed.
+ 
+
+ 
+Tong Zhao directly posted in the WeChat group:
+ 
+
+ 
+[Delay what? I’m the best spokesperson. Let him refund the money and get lost.]
+# Chapter78
+Under further questioning, Tong Zhao discovered that the problem was quite significant.
+ 
+
+ 
+When she was filming "One Life Survivor," there were many messages she didn't have time to handle. Her friends knew she was busy with work and didn’t want to disturb her. The "Little Lamb Companion" project had matured well under Tong Zhao’s previous guidance, and Wei Zekai couldn’t find any flaws in it; the only issue was that they were stuck on the promotion aspect.
+ 
+
+ 
+This had him so worried that he was nearly bald.
+ 
+
+ 
+Tong Zhao had high hopes for "Little Lamb Companion." Not only had she gotten Zeshan to invest in it, but she had also purchased it outright.
+ 
+
+ 
+If Tong Zhao believed in the project, he couldn’t mess it up!
+ 
+
+ 
+However, Wei Zekai truly lacked experience in marketing, and the proposals from the people he hired didn’t seem good enough.
+ 
+
+ 
+With his vast financial resources, he thought about renting a batch of bus stop advertising spaces and purchasing subway ad spots. But then he wondered, would that be effective? The target users for "Little Lamb Companion" were likely not busy office workers... At least during their commutes, they probably wouldn’t feel compelled to download the app or place an order upon seeing such advertisements.
+ 
+
+ 
+So how could they promote it effectively?
+ 
+
+ 
+Under Tong Zhao’s guidance, Wei Zekai had already begun to adopt the necessary business mindset.
+ 
+
+ 
+That was to avoid wasting unnecessary money.
+ 
+
+ 
+In the past, the young master Wei had been overly pampered, and what he did was not really investing; at most, it could be considered charity.
+ 
+
+ 
+Now, he was being very meticulous with his spending.
+ 
+
+ 
+After listening, Tong Zhao first praised him, saying, "Now you understand the importance of saving. Your thinking is correct; don’t buy subway ad spaces, they’re not suitable for 'Little Lamb Companion' at the moment."
+ 
+
+ 
+"What should we do instead?"
+ 
+
+ 
+Wei Zekai asked sincerely.
+ 
+
+ 
+He had always held Tong Zhao’s words in high regard. It wasn’t about romantic feelings; he simply believed that Tong Zhao was stronger than him in business and investment—quite a bit stronger. If they were partners in making money, he should listen to someone more capable. As long as he handled the tasks she assigned him well, he would take credit for it!
+ 
+
+ 
+This distinction was quite subtle.
+ 
+
+ 
+A man who wants to pamper a woman and listens to her is different from one who finds her strong and excellent and therefore obeys her. The feelings that arise from these two scenarios are not the same.
+ 
+
+ 
+Tong Zhao was more inclined to accept the latter.
+ 
+
+ 
+Unfortunately, the timing of the question was off, as Wei Zekai recalled a series of “plop plop plop plop...” sounds.
+ 
+
+ 
+“…”
+ 
+
+ 
+He frowned, sensing that things weren’t simple: “Tong Zhao, what are you doing?”
+ 
+
+ 
+Immediately, Wei Zekai heard the sound of water.
+ 
+
+ 
+“I’m taking a bath. I got so absorbed in my thoughts that I forgot half my face was submerged in the water.”
+ 
+
+ 
+Tong Zhao casually described a rather silly situation.
+ 
+
+ 
+Her tone was so flat that Wei Zekai didn’t think much of it. He listened attentively to every proposal she mentioned, taking notes on his iPad as he listened.
+ 
+
+ 
+It wasn't until Wei Zekai hung up the phone that he belatedly realized...
+ 
+
+ 
+Huh? Tong Zhao was kind of cute just now.
+ 
+
+ 
+Wait, she’s taking a bath. Does that mean she’s not wearing any clothes?
+ 
+
+ 
+...
+ 
+
+ 
+Wei Zekai clasped his hands over his head, trying to stop imagining what was happening on the other end of the call by picturing himself as a stone.
+ 
+
+ 
+Stop your shameful imagination!
+ 
+
+ 
+...
+ 
+
+ 
+The original promotional spokesperson for "Little Lamb Companion" was Peng Yuankang, who was currently in quite a mess.
+ 
+
+ 
+His cheating scandal had been exposed, and after a heated argument with his girlfriend, he “accidentally” used too much force, which was captured on camera and turned into undeniable evidence of violent behavior. He lost a significant number of fans. Fortunately, the remaining fans weren't too bright and were particularly eager to support him... but after the numbers dwindled, many partnerships that had been going well fell apart, and some contracts were terminated.
+ 
+
+ 
+Capitalists never act foolishly; the contract clearly stated that no major scandals could occur during the cooperation period, and the various clauses made his head spin.
+ 
+
+ 
+Many businesses stated that while they wouldn't demand compensation, the funds definitely had to be returned.
+ 
+
+ 
+With no energy or money to fight lawsuits, Peng Yuankang had no choice but to refund the money.
+ 
+
+ 
+For some businesses that didn’t have time to find a replacement or had no one to replace him, Peng Yuankang knew they would stubbornly use him until the end.
+ 
+
+ 
+"Little Lamb Companion" was one of those cases.
+ 
+
+ 
+Unexpectedly, that morning, his manager received a call from the other party about terminating the contract and replacing him, and their attitude was quite firm. Last night, after partying until midnight, Peng Yuankang woke up with a hangover and was hugging the toilet to throw up when he heard this news, instantly looking even worse as he angrily said, “If I’m replaced, who else can they find?”
+ 
+
+ 
+The promotional budget for this app wasn't high, and they wanted to find a star who could portray a gaming persona.
+ 
+
+ 
+He happened to fit both criteria perfectly.
+ 
+
+ 
+If it weren’t for the major scandal, he would have been a cost-effective choice for promotion.
+ 
+
+ 
+Feeling like "I'm finished, but I can't stand to see you do well," he was like a loser obsessively stalking his ex's Weibo, fixating on the official account of "Little Lamb Companion."
+ 
+
+ 
+In the end, there was only a single post announcing the termination of their collaboration with Peng Yuankang.
+ 
+
+ 
+The comments below were filled with disappointed fans and satisfied passersby.
+ 
+
+ 
+What about the new spokesperson?
+ 
+
+ 
+Are they not looking for one?
+ 
+
+ 
+It's possible, but how are they planning to promote it?
+ 
+
+ 
+Peng Yuankang’s educational background wasn’t great; he was focused on how to gain and retain fans, and how to become popular. After graduating from high school, all he wanted was to become a star. He thought about how easy it would be to gain fans and make money. He only knew that if he became popular, he could sell a single Weibo post for six figures and earn significant promotional fees just by taking a few smiling promotional photos. Money seemed to come as simply as he imagined.
+ 
+
+ 
+Fans were only lovable when they were spending money.
+ 
+
+ 
+Without those fans willing to download the app repeatedly and provide attractive data for the business, how could this app be promoted? He thought about it for a long time but couldn't come up with a solution. Eventually, he decided to just lie in bed after throwing up and happily scroll through Douyin on his phone.
+ 
+
+ 
+As he scrolled, he came across a gameplay video for "Honor of Kings."
+ 
+
+ 
+In one game, a female player who enjoyed playing mid-lane was getting "greened.”
+ 
+
+ 
+She originally had a jungler partner, but her jungler was lured away by a soft and charming voice belonging to a girl named Yao, who happened to be matched up against the female protagonist. The scumbag, along with his new fling, bullied her, and the new girl mocked her in everyone’s channel, saying she had no one to support her.
+ 
+
+ 
+At this moment, the jungler on the female protagonist's side responded: [She has me to support her.]
+ 
+
+ 
+Not only was there a voiceover, but it was accompanied by a classic black-and-white, melancholic, and darkened male avatar.
+ 
+
+ 
+The voice was so clear that it couldn't have been in-game voice chat.
+ 
+
+ 
+It had to have been added in post-production.
+ 
+
+ 
+Of course, the result was that the female protagonist, with the help of this super strong random jungler, turned the tables and made a comeback. The female protagonist was very grateful, and the random jungler, using his sexy and husky male god voice, replied casually, “No need to thank me, I’m just playing solo.” Then, he exited the game room. When the female protagonist checked, she discovered he was a newcomer in "Little Lamb Companion" (highlighted in bold and red) and loudly exclaimed, “So downloading this Little Lamb Companion app allows you to find powerful players?” With a curious mindset, she decided to place an order for him…
+ 
+
+ 
+“Ah?” Peng Yuankang looked completely bewildered.
+ 
+
+ 
+In "Honor of Kings," unless you're in a high-ranked tier or playing at odd hours like late night or early morning, the chances of matching the same players or people you know in lower-ranked matches or fish ponds are very low. (Of course, it’s very low, not impossible.)
+ 
+
+ 
+This was clearly staged!
+ 
+
+ 
+Can gameplay be staged?
+ 
+
+ 
+The key was that the comment section was so unable to distinguish reality from fiction, totally captivated, and enthusiastically discussing this melodramatic plot, complete with download links.
+ 
+
+ 
+There were also gender-swapped versions.
+ 
+
+ 
+The lonely male players who had gone through breakups encountered the gentle and soft-voiced companions in "Little Lamb Companion," where they both leveled up and healed from their pain.
+ 
+
+ 
+The skilled jungler who couldn’t find a girl to play with tried taking orders in "Little Lamb Companion" and ended up making money while finding love.
+ 
+
+ 
+After receiving the promotional refund from Peng Yuankang, Tong Zhao divided it into several parts and decided to collaborate with game streamers who charged relatively lower fees, spreading out the investment. She allowed these streamers to have their names featured in "Little Lamb Companion" and, if they were willing, they could actually sign contracts and take orders there, receiving a more favorable revenue share...
+ 
+
+ 
+The big streamers would only be listed as names, but many mid-tier and small streamers genuinely wanted to take orders here.
+ 
+
+ 
+One sheep is one dollar, and 200 sheep for one game session.
+ 
+
+ 
+It’s not cheap, but there will definitely be fans willing to pay.
+ 
+
+ 
+For ordinary companionship, the cost generally starts from 10 sheep for one game session, and the price can be increased as their level goes up with more orders.
+ 
+
+ 
+Any game can have companions.
+ 
+
+ 
+There are also those who read stories, sing to lull people to sleep... Of course, Tong Zhao had the foresight to strictly prohibit inappropriate services, requiring that profile images and backgrounds undergo review to ensure they aren't vulgar or overly revealing.
+ 
+
+ 
+This promotional effect was much better than hiring a spokesperson.
+ 
+
+ 
+Tong Zhao also pointed out a clear path for Wei Zekai: "There must be people in your friend circle who know about e-sports clubs. When looking for a spokesperson, you should reach out to them. Gamers don’t recognize entertainment industry stars; they only recognize the gaming circle."
+ 
+
+ 
+Wei Zekai asked, "So we won't look for spokespeople in the entertainment industry?"
+ 
+
+ 
+Tong Zhao sent him some of her best promotional photos, telling him to find someone to edit them, and once that was done, she would inform her agent to finalize the matter.
+ 
+
+ 
+The blue ocean market of companionship and training was thoroughly occupied by Zeshan under her forward-thinking decisions.
+ 
+
+ 
+The first person to take the plunge gets to seize all the advantages.
+ 
+
+ 
+First, they captured the target customer group with streamers and game videos. As long as a large number of curious players came to join, some to consume and others to earn money, the "Little Lamb Companion" platform became "alive." Finally, Tong Zhao stepped in as a spokesperson, allowing the general public to discover this formal and convenient software, elevating its status.
+ 
+
+ 
+Everyone in the industry couldn't help but marvel at how difficult it is to make a platform-based software popular; throwing money at ad placements and splash screens is like pouring money into a bottomless pit.
+ 
+
+ 
+Who would have thought that directing and acting out some melodramatic gaming stories could spread virally?
+ 
+
+ 
+There must be experts behind this!
+ 
+
+ 
+But who are these experts?
+ 
+
+ 
+It’s easy to trace the ownership of a software company, and it quickly led to the venture capital firm Zeshan behind it. No one doing business in the city was unaware that this group of playful second-generation wealthy individuals had a wise mentor behind them. It seemed that this was also the handiwork of that wise mentor. Many wealthy individuals secretly inquired with the Wei family, wondering if they could invite this behind-the-scenes expert at a high price for some guidance.
+ 
+
+ 
+The Wei family, knowing the truth, thought: …
+ 
+
+ 
+If he said this expert was a twenty-something female star, would these people believe it?
+ 
+
+ 
+Mr. Wei was vague and could only say that this expert had a deep connection with his little Kai, describing them as a person of great skill whom he had known since childhood. Their reputation was high enough that it wasn’t convenient to reveal their identity.
+ 
+
+ 
+Two days later, a message circulated in the city's elite circles.
+ 
+
+ 
+The wise expert behind Zeshan was none other than Wei Zekai's godfather.
+ 
+
+ 
+...
+ 
+
+ 
+Unbeknownst to her, Tong Zhao's other identity was rising in value.
+ 
+
+ 
+And as for her, after knowing that this promotional strategy was feasible and that the software’s marketing was on the right track, she continued to be the hands-off manager.
+ 
+
+ 
+After all, there were more important matters at hand.
+ 
+
+ 
+Tong Zhao went for the audition for "The Knives of the Maiden." The audition location was not in her city.
+ 
+
+ 
+However, in the holographic era, Director Shi speculated that since she was busy with her rising fame, he didn’t insist that she come to Qin City; they could connect via a holographic filming chamber in the film studio to access the cloud data.
+ 
+
+ 
+Tong Zhao's impression of Director Shi improved even further.
+ 
+
+ 
+The script for "The Knives of the Maiden" was not complicated, and she watched it alongside other characters.
+ 
+
+ 
+The main character, Xie Guiya, had a name that resembled those in martial arts novels, but she had no interest in chivalry or heroics. Her biggest wish was to get accepted into a good university and find an ordinary job after graduation...
+ 
+
+ 
+Although she couldn't imagine herself getting married and having children, she firmly believed her life would be on the right track.
+ 
+
+ 
+She longed for an ordinary life too much!
+ 
+
+ 
+At university, Xie Guiya, who maintained a sense of distance from everyone, fell in love with the campus heartthrob. While they were dating at a milk tea shop during the day, they heard about a bizarre theft of a cultural relic from China. Beside the empty safe was a brand-new knife, and the stolen antiquity was exactly a knife. This was already the third cultural relic theft this season, and each time a weapon was lost, the same type of weapon would appear in the location, only it was brand new.
+ 
+
+ 
+The reasons for the theft were various, and the campus heartthrob sighed that it really felt like something out of a martial arts film—how enchanting!
+ 
+
+ 
+Xie Guiya asked him, "Do you really like martial arts movies?”
+ 
+
+ 
+The campus heartthrob immediately became energized and enthusiastically recommended his favorite martial arts novels to her—turns out he was a martial arts fan. He had read all the high-quality and well-known novels, movies, and comics. He was also well-versed in various urban legends, including the one about a martial arts family with a history of over a hundred years that was said to be living as hermits in this city...
+ 
+
+ 
+“By the way, your name has a very martial arts vibe too. Others say your name sounds masculine, but I particularly like it.” The campus heartthrob looked at her with affection, feeling he was quite good at sweet-talking!
+ 
+
+ 
+However, the female lead's mentality broke at that moment.
+ 
+
+ 
+Because Xie Guiya actually came from a martial arts family.
+ 
+
+ 
+The “hundred-year-old martial arts family” that the campus heartthrob mentioned… was her family. Since childhood, her father had insisted that she practice martial arts. Why? Because her father grew up during the era that promoted the idea that women could hold up half the sky. He was very patriotic and listened to the leaders, believing in gender equality, insisting that both men and women should practice martial arts for self-defense! Xie Guiya was an extraordinary martial arts talent, effortlessly training even better than her brother while maintaining an expressionless demeanor and complaining lightly.
+ 
+
+ 
+But Xie Guiya only wanted to be an ordinary person; she didn’t want to become the modern martial arts leader.
+ 
+
+ 
+The main storyline revolves around the theft of cultural relics, which leads to the upcoming 108th martial arts conference about to take place in the city.
+ 
+
+ 
+The subplot involves the female lead resolving this seemingly ridiculous modern martial arts incident while learning that Huaxia martial arts are a cultural inheritance, reconciling her inner conflicts, and reaching personal growth.
+ 
+
+ 
+So who should go?
+ 
+
+ 
+Director Shi was attracted by Duan Ge from "One Life Survivor," so it seemed natural for him to choose Duan Ge for this role.
+ 
+
+ 
+Duan Ge: “I just killed twenty people in the movie, and I've been feeling particularly murderous lately. I might just kill all the competitors for the leadership position before going back to studying.”
+ 
+
+ 
+...That makes sense.
+ 
+
+ 
+"How about I go?" the female reporter suggested.
+ 
+
+ 
+Journalism is a clerical profession, but not all journalists are the same.
+ 
+
+ 
+Her first anti-war news was that of a war correspondent.
+ 
+
+ 
+However, her personality is much more peaceful than Duan Ge’s; she even possesses a softness and kindness that sometimes border on excessive compassion, which often leads her to depression as she searches for the truth behind others' suffering.
+ 
+
+ 
+Tong Zhao pondered for a moment and decided to consult Director Shi—
+ 
+
+ 
+Her subconscious inclination is toward diversity; everyone knows this. She couldn’t decide which side of herself to bring to the character of Xie Guiya. If possible, could she audition twice, allowing Director Shi to choose which side to use?
+ 
+
+ 
+Shi Dingjun was surprised.
+ 
+
+ 
+The production costs for a film can be high, but if only one segment is filmed for the audition, the price is not so exorbitant.
+ 
+
+ 
+The director agreed, allowing her to portray the same segment with different mindsets to see how it would turn out.
+# Chapter79
+Qin City.
+ 
+
+ 
+Inside a diamond-grade audition room.
+ 
+
+ 
+"Director Shi, did you really agree to such an absurd request?"
+ 
+
+ 
+The supervisor of ‘The Knives of the Maiden’ wore a look of disapproval.
+ 
+
+ 
+He knew the director admired Tong Zhao, had seen her movies and variety shows, and thought she had great potential to play Xie Guiya, but the idea that someone could possess multiple subconscious personas? That sounded too far-fetched to him.
+ 
+
+ 
+The supervisor had seen actors, enraged by finding out their girlfriends cheated on them just before an audition, suddenly transform from their usual mild-mannered selves into volatile, aggressive characters once they got into the role.
+ 
+
+ 
+He had also seen actors who, desperate for a final chance at an audition, broke through their own limitations of timidity and delivered excellent performances.
+ 
+
+ 
+But those situations were different from what Tong Zhao was describing.
+ 
+
+ 
+"Multiple subconscious personas in one person? I think she’s just buying into the hype about her ‘most special subconscious’ persona," the supervisor shook his head, disappointed. He had a good impression of Tong Zhao before, but her recent behavior was ruining that. He added a logical inference, "Maybe she just really wants the role and is afraid she won’t perform well in a single audition, so she’s scheming to get two chances. If she were honest about it, I wouldn’t be so irritated."
+ 
+
+ 
+Director Shi smiled good-naturedly.
+ 
+
+ 
+"You’re only doing this because of the old curator, right?" the supervisor asked.
+ 
+
+ 
+"Movies and actors are a two-way choice. Tong Zhao is currently valued highly in commercial films," Director Shi, though having high standards for movies, spoke smoothly, never really saying much while remaining respectful to everyone. "I’d like to see the results of the audition first before making any judgments. At the very least, her action scenes should be quite impressive."
+ 
+
+ 
+"That’s true. This is a new experiment for you, after all. The lead must have strong personal charisma, and she can definitely pull that off." Reluctantly, the supervisor acknowledged her strengths.
+ 
+
+ 
+Tong Zhao was well-liked by the audience.
+ 
+
+ 
+This couldn’t be explained by just her appearance. Perhaps it was because she had experienced many different lives, continuously offering something new to the audience while allowing them to always find something they liked in her. And when she occasionally revealed her true self, the audience couldn’t quite figure out who she really was, adding a mysterious allure to her stardom.
+ 
+
+ 
+That was the industry’s analysis, trying to uncover her "secret to overnight success."
+ 
+
+ 
+But so far, no one had been able to replicate it.
+ 
+
+ 
+The supervisor glanced at the clock.
+ 
+
+ 
+In Director Shi Dingjun’s special audition room, there was an unusually designed clock with hands shaped like swords of varying lengths, giving off an intense and intimidating vibe. "Are the supporting actors ready?"
+ 
+
+ 
+"They’re already in the filming pod."
+ 
+
+ 
+"Good."
+ 
+
+ 
+"What about Tong Zhao?"
+ 
+
+ 
+……
+ 
+
+ 
+[Who’s going first?]
+ 
+
+ 
+When Tong Zhao entered the private audition room, she asked the other personas for their opinions.
+ 
+
+ 
+Duan Ge responded, [Shall I go?]
+ 
+
+ 
+Tong Zhao readily agreed, giving up her role as the primary persona.
+ 
+
+ 
+Due to budget considerations, the lead and supporting actors would audition together. Supporting actors wouldn’t be given a second chance, so even though Duan Ge and the female reporter (Shen Shuyi) were performing the same scene, the supporting actors would be different.
+ 
+
+ 
+Aside from the male lead and the villain, the other two supporting actors were in their third round of auditions.
+ 
+
+ 
+Accompanied by the faint hum of the air conditioner, Duan Ge fell into a deep sleep.
+ 
+
+ 
+……
+ 
+
+ 
+The purpose of the audition was to test whether the actor’s subconscious matched the character.
+ 
+
+ 
+The clearest way to see this was in the character's choices and reactions.
+ 
+
+ 
+Scene: The top floor of a luxurious clubhouse in Jiang City.
+ 
+
+ 
+Characters:
+ 
+- Xie Guiya (protagonist)
+ 
+- Cheng Siwen (important male supporting role)
+ 
+- Plum Blossom Swordsman (supporting role)
+ 
+- Horse Boxer (supporting role)
+ 
+- Fu Xuancheng (important supporting role)
+ 
+
+ 
+Combat rankings in this scenario: Fu Xuancheng > Plum Blossom Swordsman = Xie Guiya > Horse Boxer >>>>> Cheng Siwen
+ 
+
+ 
+Plot: Xie Guiya, attending the martial arts tournament in place of her father, who injured his back during a midlife crisis and couldn’t lift his sword, needs to make a strong entrance to impress the martial arts elites. At the same time, she has to bring her boyfriend, Cheng Siwen, who has no fighting skills, to identify a notorious thief.
+ 
+
+ 
+The challenge is to assert dominance over the other supporting characters while protecting her boyfriend.
+ 
+
+ 
+In the script, the writer set up the "protection" as the female lead using various methods to prevent the others from harming him.
+ 
+
+ 
+She could rely on intelligence or intimidation through martial prowess.
+ 
+
+ 
+The main goal was to see if the actor's subconscious could create chemistry with the character.
+ 
+
+ 
+Fight scenes could be compensated with choreography, a common approach in action films. Backed by the old curator, Director Shi Dingjun had access to the best action designers.
+ 
+
+ 
+The supervisor recalled the two previous actors who had already gone home to wait for results.
+ 
+
+ 
+The first, Qin Yisi, was tall. She wore a mask and disguised herself as a man. Before her debut in films, she had been involved in online voice acting and could naturally produce a deep male voice without the need for a voice modulator, making Cheng Siwen pass as her brother.
+ 
+
+ 
+Director Shi gave her a passing grade but felt she lacked confidence.
+ 
+
+ 
+Why did she have to disguise herself as a man?
+ 
+
+ 
+The ability to imitate a male voice was a nice touch, but Director Shi wanted to portray a modern female hero this time, so he sent her home to wait for further news.
+ 
+
+ 
+The second, Zhang He, had Cheng Siwen pretend to be a waiter, entering separately from her, while she secretly told her friends to call the police if they didn’t hear from her for a certain period. This approach was too pragmatic and clearly reflected her personality.
+ 
+
+ 
+This wasn’t the Xie Guiya Director Shi wanted.
+ 
+
+ 
+In his audition notes, he wrote: [Reflects Xie Guiya's self-perception but lacks uniqueness. Unable to capture the real essence of her character. Her actions are reasonable and steady, but the connection to the character is weak.]
+ 
+
+ 
+In the female lead’s eyes, she was practical and had no relation to being a hero.
+ 
+
+ 
+But in reality, she grew up immersed in a martial arts family and had a heroic spirit.
+ 
+
+ 
+The entire film was about her journey from repressing that spirit to finally accepting it.
+ 
+
+ 
+The supervisor mumbled quietly, "Actually, I thought Qin Yisi did a pretty good job."
+ 
+
+ 
+"Her choice to disguise herself as a man for the sake of courage was a major negative for me. While this might have been understandable in a patriarchal era, it’s unnecessary in a modern setting."
+ 
+
+ 
+Director Shi shook his head. "I want to convey the essence of traditional martial arts through this film. There’s no need to perpetuate outdated values."
+ 
+
+ 
+The monitor lit up.
+ 
+
+ 
+This meant Tong Zhao had entered the world of the holographic film.
+ 
+
+ 
+……
+ 
+
+ 
+Outside the luxury clubhouse in Jiang City.
+ 
+
+ 
+"Baby, should I follow you inside?"
+ 
+
+ 
+The protagonist’s boyfriend, Cheng Siwen, the film’s male supporting character, asked.
+ 
+
+ 
+The model created by Duan Ge’s subconscious was dressed in an ordinary outfit, not disguised in a mask and men’s clothing like Qin Yisi's version, nor wearing any eccentric clothes. She wasn’t even in pants suitable for fighting but in a knee-length cocktail dress.
+ 
+
+ 
+The modeler pulled up data showing that this cocktail dress could be easily removed by unfastening a side button, revealing black shorts underneath.
+ 
+
+ 
+The difference between the audition and the official shoot was that in the audition, the actors chose their outfits based on their subconscious desires rather than pre-designed costumes. The AI would select something that aligned with the actor’s imagination from the modeling database, ensuring the props met the audition’s needs.
+ 
+
+ 
+This explained the previous actor’s mask and men’s attire.
+ 
+
+ 
+"Why wear a dress?" the modeler asked, puzzled.
+ 
+
+ 
+"Because wearing jeans to such an event would look strange," the supervisor, having watched countless films, immediately understood the logic. He saw the overlap between Duan Ge’s thinking and the character’s: "Attending a martial arts gathering, which is a super-realist setting, while maintaining a grounded and practical mindset—this performance is very in tune with the protagonist!"
+ 
+
+ 
+Once the audition began, the supervisor quickly put aside his previous biases against her.
+ 
+
+ 
+Sure enough, all the men and women entering the clubhouse were dressed in formal attire.
+ 
+
+ 
+Duan Ge’s simple dress was already quite understated.
+ 
+
+ 
+The supervisor commented, "The outfits worn by the previous two actors attracted attention from passersby, which actually goes against the protagonist’s principle of keeping a low profile in front of ‘ordinary people.’"
+ 
+
+ 
+They continued watching.
+ 
+
+ 
+Duan Ge nodded and instructed, "Don’t call me baby in there. Call me sis."
+ 
+
+ 
+She briefly explained that her boyfriend should act like her little brother or lackey. "Whatever you think—subordinate, follower, or gofer. If I scold or hit you, just bear with it. Don’t talk, do less, and use your eyes to observe."
+ 
+
+ 
+"Are you going to hit me?" Cheng Siwen looked dumbfounded.
+ 
+
+ 
+He hadn’t expected his girlfriend to be so fierce, but behind his dazed look was a trace of excitement.
+ 
+
+ 
+It wasn’t that he had a masochistic streak, but the character setting made him fascinated by anything related to martial arts, sparking positive emotions in him. (All character traits were controlled by manipulating brain chemicals to trigger preferences).
+ 
+
+ 
+Duan Ge nodded slightly and whispered a few more instructions in his ear.
+ 
+
+ 
+The actor playing Cheng Siwen had a more submissive subconscious, and with Duan Ge’s authoritative tone, he nodded obediently
+ 
+
+ 
+The director and Mr. Shi were curious about what she said, feeling quite intrigued.
+ 
+
+ 
+Unconsciously, they had already been somewhat drawn into the scene, like watching a movie and not wanting to immediately uncover the mystery.
+ 
+
+ 
+After taking the elevator to the top floor, they were greeted by a vast rooftop and an infinity pool.
+ 
+
+ 
+Three supporting actors were already waiting there for the two of them.
+ 
+
+ 
+"You are the successor of Xie Shengyi?"
+ 
+
+ 
+The martial artist asked, looking at Cheng Siwen.
+ 
+
+ 
+This was a default assumption, that the person who could attend in place of their father had to be a man.
+ 
+
+ 
+Previously, Qin Yisi had caught the attention of the supporting characters by wearing an eye-catching mask and men's clothing, preventing any cases of mistaken identity.
+ 
+
+ 
+Cheng Siwen kept in mind what his girlfriend had told him—don’t speak, do less—and kept his head down, observing in secret.
+ 
+
+ 
+"I'm talking to you."
+ 
+
+ 
+The martial artist strode forward.
+ 
+
+ 
+Each step exuded the aura of a mere cannon fodder.
+ 
+
+ 
+"What will Tong Zhao do next?" the director wondered.
+ 
+
+ 
+As soon as he spoke, in the filming scene, Duan Ge moved faster than the martial artist. Using two moves of Bajiquan, she struck his vital points, leaving him stunned. She then grabbed the fabric of his back, pulling him down, while raising her knee to strike his chest. The front and back of a person’s chest are places that cannot withstand heavy blows easily. The martial artist, whose strength was set lower than the protagonist at this point, had no ability to fight back.
+ 
+
+ 
+Duan Ge’s subconscious had been infused with a lot of martial arts knowledge, all of which the protagonist had learned from a young age.
+ 
+
+ 
+She chose the most brutal and ruthless close-combat style of Bajiquan.
+ 
+
+ 
+"Ouch."
+ 
+
+ 
+The director felt the pain just watching it.
+ 
+
+ 
+"Tong Zhao really hits hard. If she’s not careful, she could kill someone. She’s basically going for the kill," Mr. Shi, being an expert, saw it even more clearly. Initially surprised, he then recalled that she was a ruthless character who had eliminated 20 people on a reality survival show. That made it all seem reasonable. "Her subconscious temper is really explosive."
+ 
+
+ 
+The martial artist saw stars and could barely stand.
+ 
+
+ 
+The other supporting actor and villain had no intention of helping him.
+ 
+
+ 
+He opened his mouth, but before he could say anything, he got beaten up again.
+ 
+
+ 
+The AI scanned Cheng Siwen's character, who had a loud inner monologue: "Yes, it's now! She's going to ask me to speak up and stop her!"
+ 
+
+ 
+"Sis, if you keep hitting him, you're going to kill him..."
+ 
+
+ 
+"Hmm?"
+ 
+
+ 
+Duan Ge grabbed the martial artist, who had passed out, by the back of the neck like he was trash and looked back at Cheng Siwen.
+ 
+
+ 
+In the camera shot, her eyes were indifferent and deep, with the reflections from the infinity pool lights in her pupils, shimmering like the glint of madness.
+ 
+
+ 
+She let go, and the man collapsed to the ground.
+ 
+
+ 
+Facing Cheng Siwen and the camera, from the perspective of the other two characters, she lifted a wicked smile and softly said, "Are you teaching me how to do things?"
+ 
+
+ 
+From the view of the two supporting actors, she was even attacking her own people.
+ 
+
+ 
+There was no need to explain. Her actions and presence had already conveyed that she was the sole heir of the Xie family.
+ 
+
+ 
+Pure madness!
+ 
+
+ 
+This unpredictable hidden strength, combined with her ruthlessness, made the other two wary of her.
+ 
+
+ 
+The director finally pulled up the protagonist's inner monologue for this scene.
+ 
+
+ 
+Duan Ge wasn't actually insane.
+ 
+
+ 
+She simply knew that in this banquet, she was the primary target. One against three was a fight she couldn't win. So, she chose to single out one person and beat them up to establish dominance. But how to ensure no one would touch Cheng Siwen? Her reasoning was that no one would be interested in a minor character. By making him act timid and allowing him to be scolded in front of everyone, she figured they’d see him as insignificant and useless and would simply ignore him.
+ 
+
+ 
+At the same time, he also served as a tool to display her imposing aura.
+ 
+
+ 
+She pretended to hit him a few times, but it was all for show—lots of noise but little harm.
+ 
+
+ 
+Cheng Siwen recognized the infamous thief Fu Xuancheng. After testing the waters, he quietly and pitifully asked her, "Weren't you supposed to not really hit me?"
+ 
+
+ 
+Duan Ge:
+ 
+
+ 
+"Anyone I really hit is already waiting to get into the ICU. You'll just cry for two days and be sore for a week, and then you'll be fine."
+ 
+
+ 
+Pulled into her twisted logic, Cheng Siwen whispered his thanks.
+ 
+
+ 
+The audition ended with a shot of him looking slightly confused, wondering if he had been tricked.
+ 
+
+ 
+The director laughed out loud. "Tong Zhao is funny, but she seems a bit too fierce."
+ 
+
+ 
+"I want to see that other side of her that Tong Zhao mentioned."
+ 
+
+ 
+Mr. Shi noted this on her audition feedback: "Highly skilled at utilizing the martial arts knowledge infused into her subconscious, adept at using the people and objects around her to highlight her character and achieve plot objectives. Has a certain comedic sense, but is a bit too fierce. If we decide to use her, the script might need slight adjustments."
+ 
+
+ 
+After watching Tong Zhao's audition, Mr. Shi felt a strong urge to choose her.
+ 
+
+ 
+But "The Knives of the Maiden" might not be quite the right fit for her.
+ 
+
+ 
+Unless the script was rewritten...
+ 
+
+ 
+The screenwriter, who had already been asked by the client to rewrite the story about ten times before the audition even started, sighed:
+ 
+
+ 
+"Director, why are you looking at me?”
+# Chapter80
+"Do you need some time to prepare?"
+ 
+
+ 
+Director Shi asked with concern over the phone.
+ 
+
+ 
+From his perspective, switching between two entirely different emotional states must be quite mentally taxing. Audition time is precious, and typically, actors wait anxiously for their turn. However, after the first audition, he was willing to wait for Tong Zhao to be ready, as he just wanted to see her in her best state.
+ 
+
+ 
+Tong Zhao: [Shuyi, are you ready?]
+ 
+[I'm fine.]
+ 
+[If I can help you out this time, that would be great.]
+ 
+
+ 
+Shuyi smiled.
+ 
+
+ 
+Ever since returning to her original world and stepping back into the entertainment industry, Tong Zhao had been living a relaxed and healthy life, far from negative emotions. This cheerful mental state nourished the journalist—no, Shen Shuyi—allowing her to rediscover her own name.
+ 
+
+ 
+All of this, she thought, was the system's fault.
+ 
+
+ 
+Back then, the system gave Shuyi a task to hand in three news articles, all on dark and brutal subjects.
+ 
+
+ 
+But Shuyi was the kindest among them, the one who most wanted to pursue justice.
+ 
+
+ 
+The public needed the truth, and the higher-ups needed to be held accountable by the people.
+ 
+
+ 
+If a portion of the population could be saved, if younger generations could be warned, and if the voices of the vulnerable could be heard, she would be willing to risk everything, even if it meant crashing and burning.
+ 
+
+ 
+Thinking of this, Tong Zhao realized that she, too, had a sense of chivalry.
+ 
+
+ 
+Tong Zhao thanked the director for his consideration. "No need, let's go straight into it."
+ 
+
+ 
+"Alright, I'll restart the program on my end."
+ 
+
+ 
+Without removing the equipment, Tong Zhao once again drifted into a dream.
+ 
+
+ 
+...
+ 
+
+ 
+The familiar time and place.
+ 
+
+ 
+The luxurious club in Jiang City, outside the Hero Mansion.
+ 
+
+ 
+"Darling, should I follow you inside later?"
+ 
+
+ 
+Cheng Siwen asked.
+ 
+
+ 
+All the backstage staff had their eyes on the main character, not sparing even a glance at him.
+ 
+
+ 
+Now, facing the same lines and the same situation, what kind of different reactions and choices would Tong Zhao make?
+ 
+
+ 
+Everyone was shocked to discover—
+ 
+
+ 
+Tong Zhao's subconscious had conjured a different outfit!
+ 
+
+ 
+She was dressed in a Burberry trench coat, underneath a simple white shirt—no extra embroidery or logo, just a plain white shirt. Paired with short black dress pants, her long, slender legs were strikingly eye-catching.
+ 
+
+ 
+There's no denying it—her height and exceptional body proportions suited this style perfectly.
+ 
+
+ 
+...
+ 
+
+ 
+"Wha-wha-what... how did she manage to achieve such a huge psychological shift in such a short time?!"
+ 
+
+ 
+The head of the modeling team exclaimed in disbelief.
+ 
+
+ 
+The more professional someone is, the more they can appreciate the marvel that is Tong Zhao, beyond just her outfit change.
+ 
+
+ 
+Normal subconscious activity tends to solidify in the short term and flow in the long term.
+ 
+
+ 
+In simpler terms, the moon may become full, and people may change, but the moon doesn’t go from crescent to full in just a few minutes. It’s like certain flashy, unreliable weight-loss drugs that promise you can lose 30 pounds in three days without exercising—the only possible way to achieve that is through amputation.
+ 
+
+ 
+This was already beyond his comprehension.
+ 
+
+ 
+Director Shi frowned and said, "Quiet. Let’s discuss it after we’ve finished watching."
+ 
+
+ 
+He didn’t care if it made sense. He was only interested in what kind of effect Tong Zhao would show him in her second audition.
+ 
+
+ 
+The assistant director nodded.
+ 
+
+ 
+Even without knowing the full truth, he could sense the subtle changes between the two personalities: "This time, the outfit imagined by Tong Zhao’s subconscious seems to have a higher sense of quality."
+ 
+
+ 
+After all, Duan Ge (Tong Zhao's character) was one of Tong Zhao’s personalities that lived a more austere life.
+ 
+
+ 
+It was hard enough for her to get a decent meal, let alone worry about picking out clothes. She could accept the concept of wearing clothes that suited the occasion, but she wouldn’t think much about the brand or style—comfort and functionality were more important. However, Shuyi, after helping to broker a ceasefire between two nations and returning to the bustling city to receive recognition, was outwardly adorned in high-end fashion, reflecting the admiration and joy of those around her, even though she felt no inner emotion.
+ 
+
+ 
+"Does Tong Zhao have bad eyesight? This is the first time I’ve seen her wearing glasses," an assistant wondered.
+ 
+
+ 
+Not only was she wearing glasses, but they were heavy, thick-framed, black-rimmed glasses.
+ 
+
+ 
+Tong Zhao’s small face made the glasses look less awkward, lending her a scholarly air while emphasizing her petite features. The large frames seemed to take up nearly a third of her face, accentuating her fair complexion.
+ 
+
+ 
+The assistant director was unconcerned. "Maybe it’s just a fashionable accessory with no prescription."
+ 
+
+ 
+"Is that even fashionable?" another staff member asked, confused.
+ 
+
+ 
+"She looks good in them, though."
+ 
+
+ 
+The assistant director saw no issue, so no one else dared to point out that the glasses really weren’t fashionable. It was only because she had a good figure that they looked good on her...
+ 
+
+ 
+A script modeling technician checked the database to see if the glasses had a prescription.
+ 
+
+ 
+It was possible she had been wearing contact lenses before.
+ 
+
+ 
+Such small data points wouldn’t impact the overall plot.
+ 
+
+ 
+But when the technician saw the glasses’ data in the system, they gasped.
+ 
+
+ 
+In the audition scene:
+ 
+
+ 
+"This time, I’m not well-prepared, but it’ll have to do," Shuyi glanced at her naive boyfriend and shook her head. "No, you don’t need to follow me. I used last week’s tutoring wages to buy these smart glasses with a recording function. After I come out, just cross-check the faces I record."
+ 
+
+ 
+Assistant Director & Director & Scriptwriter & Staff: "..."
+ 
+
+ 
+Wait, is this what you call ‘not well-prepared’!?
+ 
+
+ 
+Tong Zhao did indeed have a budget of under 20,000 yuan, as her character was designed to be a frugal and outstanding university student who worked part-time as a tutor. Because she attended a prestigious university, her hourly wage was quite high. Most of her money was methodically saved for the future, as her character hoped to own a house by the age of 30.
+ 
+
+ 
+At this moment, the technician who had just checked the database chimed in, "Those smart Bluetooth glasses have an HD camera. If you blink four times, it records a shot. Plus, they use bone-conduction headphones, allowing discreet real-time communication with Cheng Siwen.”
+ 
+
+ 
+The staff members were speechless.
+ 
+
+ 
+Smart glasses, well, they aren't exactly new.
+ 
+
+ 
+When they first came out, they were overhyped, and when people saw how bulky and unattractive they were, combined with the fact that the functionality was far from the hacker-age technology they imagined, they lost interest immediately. Except for a few tech enthusiasts, most people didn’t pay much attention to them, and few realized that they had since become lighter, more stylish, and affordable.
+ 
+
+ 
+The database had plenty of models to choose from, but the catch was whether the actor could imagine using them. The first two actors didn’t even think of such a method. They only thought about how inconvenient it would be to secretly take photos with a phone, which is why they figured they had to bring the weakling Cheng Siwen along.
+ 
+
+ 
+Even Duan Ge hadn’t thought of it.
+ 
+
+ 
+Director Shi pondered, “But this idea doesn’t disrupt the tone of the movie. It’s very much something Xie Guiya would do.”
+ 
+
+ 
+It’s a clash between modern technology and traditional martial arts, and the protagonist is a modern-day female warrior.
+ 
+
+ 
+"Other than having the same face, this performance is completely different from her last audition. I don’t think the Tong Zhao from the previous scene would use smart glasses unless someone gave them to her as a prop," the assistant director analyzed.
+ 
+
+ 
+Subconscious creativity varies in strength, and it can be field-specific. For example, someone who has been a civil servant in real life, or whose family has been involved in government, might have a keen sense of navigating social interactions. When their subconscious enters a film setting, they might creatively tweak scenes involving interpersonal conflict, which could lead to script changes.
+ 
+
+ 
+If these tweaks don’t derail the plot, they can actually be positive, reflecting the actor’s subconscious creativity.
+ 
+
+ 
+In the world of traditional filmmaking, this would be called “improvisation.”
+ 
+
+ 
+"I’ll be worried if you go in alone," Cheng Siwen said. Though he was gentle and obedient to his girlfriend, in the script, he played a righteous character. In reality, he was a young, sunny, and handsome actor. Hearing that his girlfriend planned to face danger alone made him feel uneasy.
+ 
+
+ 
+But objectively speaking, it was indeed better if he didn’t go in.
+ 
+
+ 
+So how would Tong Zhao resolve this?
+ 
+
+ 
+Shuyi glanced at her watch and said, "I'll give you one minute. Come up with a way to help me without causing trouble."
+ 
+
+ 
+Cheng Siwen couldn’t think of anything.
+ 
+
+ 
+She smiled and logged into a cloud account on his phone. "The photos I take will be uploaded to the cloud," she said, blinking four times. As expected, within ten seconds, a close-up photo of Cheng Siwen’s face appeared in the cloud photo album. “If I encounter any danger I can’t handle, I’ll snap a bunch of meaningless floor photos. Then you…”
+ 
+
+ 
+“Call the police?”
+ 
+
+ 
+“No, you’ll take the pictures of their faces that I uploaded and forward them to your QQ account.”
+ 
+
+ 
+Shuyi spoke with calm, serene eyes set in her strikingly beautiful face.
+ 
+
+ 
+She continued, “Think about it. Who am I?”
+ 
+
+ 
+“The heir to the Xie family!”
+ 
+
+ 
+Cheng Siwen instantly answered, his face lighting up with excitement, like a fanboy seeing his favorite superhero.
+ 
+
+ 
+“…I’m a university student from Qin who doesn’t want anyone to know I’m moonlighting as a vigilante.”
+ 
+
+ 
+Shuyi said, “In modern society, there are no hidden warriors. Even the leader of a martial arts alliance has to work a regular job. They inevitably have an open identity. I don’t need you to call the police. I just need them to know that I have pictures of their faces. I don’t believe all three of them would be indifferent to having their identities exposed.”
+ 
+
+ 
+“As long as one of them cares, the other two will stop him from doing anything reckless.”
+ 
+
+ 
+Her explanation woke her boyfriend up.
+ 
+
+ 
+Putting himself in their shoes, Cheng Siwen realized that the other side would be afraid too. This was Shuyi’s way of handling things.
+ 
+
+ 
+Convinced, Cheng Siwen no longer insisted on going in with her.
+ 
+
+ 
+As soon as Shuyi entered, she used her smart glasses to take a group photo of the three men.
+ 
+
+ 
+When the Ma boxer provoked her, Shuyi quickly subdued him as well. However, unlike Duan Ge, she wasn’t as ruthless. She stopped just before hitting a vital point. “Can’t we resolve this peacefully? By now, it’s clear I’m the heir to the Xie family, right?” The Ma boxer pretended to apologize and beg for mercy, hoping to catch her off guard and strike back. But Shuyi, already prepared, kicked him in the knee, forcing him to kneel!
+ 
+
+ 
+She stepped on his thigh, blinked four more times, and said in an incredibly polite, gentle voice, "It seems you only listen when you're on your knees."
+ 
+
+ 
+As a journalist, Shuyi was used to facing danger in tough situations during interviews.
+ 
+
+ 
+She knew how to handle thugs. She wasn’t easy to deal with.
+ 
+
+ 
+She then told the Ma boxer that she had taken his photo and threatened to uncover his real identity, showing him the cloud album on her phone. “Smashing my phone won’t help. The photos are already uploaded to my boyfriend’s device… Of course, I really don’t want to resort to such harsh methods. My father often says that martial arts gatherings are meant to foster friendship, not to indulge in violence.”
+ 
+
+ 
+The Plum Blossom Swordsman was stunned, shaking his head, "Matters of the martial world should never involve ordinary people."
+ 
+
+ 
+In the story's setting, the Plum Blossom Swordsman is a high school teacher, not a villain, and he is very reluctant to reveal his identity. This is something the protagonist will discover as the main plot unfolds.
+ 
+
+ 
+Shuyi mimicked his sigh and said, "There's nothing we can do. Young people these days just don’t follow the old code of honor."
+ 
+
+ 
+As expected, there was no fight. Instead, she cleverly steered the conversation toward the movie’s central plot—the theft case—gleaning a lot of information that shouldn’t have been let slip. The Plum Blossom Swordsman, who had been highly guarded around Duan Ge, opened up to Shen Shuyi like a middle-aged man venting his frustrations.
+ 
+
+ 
+Even the only true villain, the notorious thief Fu Xuancheng, was subtly influenced by her. He impulsively blurted out something meaningful:
+ 
+
+ 
+"Maybe the person who stole the artifact didn’t actually intend to frame us."
+ 
+
+ 
+Shen Shuyi gave him a long, thoughtful look.
+ 
+
+ 
+…
+ 
+
+ 
+The audition ended the moment the protagonist and the antagonist's eyes met.
+ 
+
+ 
+The entire casting room could hardly believe that the person who had just auditioned twice was the same actor.
+ 
+
+ 
+The assistant director no longer accused Tong Zhao of trying to grandstand. Instead, he turned to the director and asked, "Director Shi, what’s your evaluation of her second audition?”
